@@ -64,6 +64,7 @@ class PedidoNamoro:
                 ASSETS_PATH + "fotos/foto_2018_1.jpg",
                 caption="",
                 use_container_width=True,
+                rotate = False,
             )
             widgets.criar_markdown(
                 "<h4 style='text-align: center; color: white;'>Nosso primeiro porre.</h4>",
