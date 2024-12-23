@@ -8,8 +8,11 @@ class StreamlitComponents:
     def exibir_imagem(caminho: str, rotate=True, **kwargs):
         """Exibe uma imagem."""
         imagem = Image.open(caminho)
-        imagem_rotacionada = imagem.rotate(-90, expand=True)
-        st.image(imagem_rotacionada, **kwargs)
+        if rotate:
+            imagem_rotacionada = imagem.rotate(-90, expand=True)
+            st.image(imagem_rotacionada, **kwargs)
+        else:
+            st.image(imagem, **kwargs)
 
     @staticmethod
     def botao_download(label: str, caminho: str, nome_arquivo: str):

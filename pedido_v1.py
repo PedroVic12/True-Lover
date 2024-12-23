@@ -51,7 +51,9 @@ class PedidoNamoro:
         with sidebar:
             widgets.criar_header("Nossa evolução ao longo dos anos")
             widgets.exibir_imagem(
-                ASSETS_PATH + "fotos/foto1.jpg", caption="", use_container_width=True
+                ASSETS_PATH + "fotos/foto_2018_0.jpeg",
+                caption="",
+                use_container_width=True,
             )
             widgets.criar_markdown(
                 "<h4 style='text-align: center; color: white;'>O dia que nos conhecemos.</h4>",
@@ -59,7 +61,9 @@ class PedidoNamoro:
             )
 
             widgets.exibir_imagem(
-                ASSETS_PATH + "fotos/foto2.jpg", caption="", use_container_width=True
+                ASSETS_PATH + "fotos/foto_2018_1.jpg",
+                caption="",
+                use_container_width=True,
             )
             widgets.criar_markdown(
                 "<h4 style='text-align: center; color: white;'>Nosso primeiro porre.</h4>",
