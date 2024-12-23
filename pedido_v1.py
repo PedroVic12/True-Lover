@@ -1,67 +1,11 @@
 import streamlit as st
 
+from src.stremlit_components import StreamlitComponents as widgets
+
+print(widgets)
+
 # Caminho global para os assets
-ASSETS_PATH = "/home/pedrov12/Documentos/GitHub/True-Lover/assets"
-
-
-class StreamlitComponents:
-    @staticmethod
-    def exibir_imagem(caminho: str, **kwargs):
-        """Exibe uma imagem."""
-        st.image(caminho, **kwargs)
-
-    @staticmethod
-    def botao_download(label: str, caminho: str, nome_arquivo: str):
-        """Cria um botão para download de arquivos."""
-        with open(caminho, "rb") as file:
-            st.download_button(
-                label=label, data=file, file_name=nome_arquivo, mime="application/pdf"
-            )
-
-    @staticmethod
-    def exibir_modal(texto: str):
-        """Exibe uma mensagem em um modal."""
-        st.write(texto)
-
-    @staticmethod
-    def criar_botao(label: str, on_click=None, **kwargs):
-        """Cria um botão."""
-        return st.button(label, on_click=on_click, **kwargs)
-
-    @staticmethod
-    def criar_container():
-        """Cria um container."""
-        return st.container()
-
-    @staticmethod
-    def criar_sidebar():
-        """Cria a barra lateral."""
-        return st.sidebar
-
-    @staticmethod
-    def criar_audio(caminho: str, **kwargs):
-        """Reproduz um arquivo de áudio."""
-        st.audio(caminho, autoplay=True, **kwargs)
-
-    @staticmethod
-    def criar_colunas(n):
-        """Cria colunas."""
-        return st.columns(n)
-
-    @staticmethod
-    def criar_markdown(markdown: str, **kwargs):
-        """Cria um markdown."""
-        st.markdown(markdown, **kwargs)
-
-    @staticmethod
-    def criar_header(texto: str, **kwargs):
-        """Cria um cabeçalho."""
-        st.header(texto, **kwargs)
-
-    @staticmethod
-    def criar_subheader(texto: str, **kwargs):
-        """Cria um subcabeçalho."""
-        st.subheader(texto, **kwargs)
+ASSETS_PATH = "./assets/"
 
 
 class PedidoNamoro:
@@ -69,75 +13,106 @@ class PedidoNamoro:
         self.dialog_message = None  # Mensagem do diálogo
 
     def exibir_pedido(self):
-        StreamlitComponents.criar_markdown(
-            "<h3 style='text-align: center; color: red;'>Tem coragem de ver as novas cartas e poesias?</h3>",
+        widgets.criar_markdown(
+            "<h3 style='text-align: center; color: red;'>Tem coragem de ver as novas cartas e poesias que fiz para voce?</h3>",
             unsafe_allow_html=True,
         )
 
         # Botão para exibir uma imagem
-        StreamlitComponents.criar_botao(
-            "Exibir Imagem",
-            on_click=lambda: StreamlitComponents.exibir_imagem(
-                ASSETS_PATH + "fotos/foto1.jpg", use_container_width=True
+        widgets.criar_botao(
+            "Carta 1",
+            on_click=lambda: widgets.exibir_imagem(
+                ASSETS_PATH + "fotos/carta1.jpg", use_container_width=True
             ),
         )
 
-    def exibir_imagens(self):
-        sidebar = StreamlitComponents.criar_sidebar()
+        widgets.criar_botao(
+            "Carta 2",
+            on_click=lambda: widgets.exibir_imagem(
+                ASSETS_PATH + "fotos/carta2.jpg", use_container_width=True
+            ),
+        )
+        widgets.criar_botao(
+            "Poesia 1",
+            on_click=lambda: widgets.exibir_imagem(
+                ASSETS_PATH + "fotos/poesia1.jpg", use_container_width=True
+            ),
+        )
+
+        widgets.criar_botao(
+            "Poesia 2",
+            on_click=lambda: widgets.exibir_imagem(
+                ASSETS_PATH + "fotos/poesia2.jpg", use_container_width=True
+            ),
+        )
+
+    def menuLateral(self):
+        sidebar = widgets.criar_sidebar()
         with sidebar:
-            StreamlitComponents.exibir_imagem(
+            widgets.criar_header("Nossa evolução ao longo dos anos")
+            widgets.exibir_imagem(
                 ASSETS_PATH + "fotos/foto1.jpg", caption="", use_container_width=True
             )
-            StreamlitComponents.criar_markdown(
+            widgets.criar_markdown(
                 "<h4 style='text-align: center; color: white;'>O dia que nos conhecemos.</h4>",
                 unsafe_allow_html=True,
             )
 
-            StreamlitComponents.exibir_imagem(
+            widgets.exibir_imagem(
                 ASSETS_PATH + "fotos/foto2.jpg", caption="", use_container_width=True
             )
-            StreamlitComponents.criar_markdown(
+            widgets.criar_markdown(
                 "<h4 style='text-align: center; color: white;'>Nosso primeiro porre.</h4>",
                 unsafe_allow_html=True,
             )
 
-    def exibir_container(self):
-        with StreamlitComponents.criar_container():
-            StreamlitComponents.criar_header("Para o(a) mais especial.")
-            StreamlitComponents.criar_subheader("🎶 Play na nossa musiquinha? 🎶")
-            StreamlitComponents.criar_audio(
+    def page(self):
+        with widgets.criar_container():
+            st.image(ASSETS_PATH + "fotos/gif_animado.gif")
+            st.divider()
+            widgets.criar_header(
+                "Para a mais especial, minha feiticeira, que tem o sorriso que ilumina meu coração, "
+            )
+            widgets.criar_header("Danielle Serrano.")
+            st.divider()
+            widgets.criar_subheader("🎶 Play na nossa musiquinha? 🎶")
+            widgets.criar_subheader("1) Opção Natalina")
+            widgets.criar_audio(
+                ASSETS_PATH
+                + "music/Justin Bieber - Mistletoe (Official Music Video).mp3",
+                format="audio/mpeg",
+            )
+            widgets.criar_subheader("2) Opção Romântica")
+            widgets.criar_audio(
                 ASSETS_PATH
                 + "music/Justin Bieber - Anyone (Official Live Performance).mp3",
                 format="audio/mpeg",
-                loop=True,
             )
-            StreamlitComponents.criar_header("Encontre a surpresa:")
+            widgets.criar_header("Encontre a sua surpresa de natal:")
 
-            col1, col2, col3, col4, col5 = StreamlitComponents.criar_colunas(5)
+            col1, col2, col3, col4, col5, col6 = widgets.criar_colunas(6)
             if col1.button("❤️", use_container_width=True, key=1):
-                self.dialog_message = (
-                    "Você é uma branch do github? Porque quero dar um merge com você."
-                )
+                self.dialog_message = '"O amor não consiste em olhar um para o outro, mas em olhar juntos na mesma direção." – Antoine de Saint-Exupéry"'
             if col2.button("❤️", use_container_width=True, key=2):
-                self.dialog_message = "Você deve ser uma função, porque toda vez que eu te chamo, retorno para você."
+                self.dialog_message = '"Nossas almas se encontraram muito antes de nossos olhos se cruzarem."'
             if col3.button("❤️", use_container_width=True, key=3):
-                self.dialog_message = (
-                    "Você pode ser meu compilador(a)? Porque eu não rodo sem você."
-                )
+                self.dialog_message = "Ser profundamente amado por alguém nos dá força; amar alguém profundamente nos dá coragem.  – Lao Tzu"
             if col4.button("❤️", use_container_width=True, key=4):
                 self.exibir_pedido()
             if col5.button("❤️", use_container_width=True, key=5):
+                self.dialog_message = '"Amar você é mergulhar em um oceano de emoções onde a profundidade nunca termina."'
+            if col6.button("❤️", use_container_width=True, key=6):
                 self.dialog_message = (
-                    "Você é um debugger? Porque você pode me ajudar com meus erros."
+                    '"No abraço do teu amor, encontrei o lar que sempre procurei."'
                 )
 
             # Exibir o diálogo se houver uma mensagem
             if self.dialog_message:
-                StreamlitComponents.exibir_modal(self.dialog_message)
+                widgets.exibir_modal(self.dialog_message)
                 self.dialog_message = None  # Limpar a mensagem após exibir
 
 
 if __name__ == "__main__":
     pedido = PedidoNamoro()
-    pedido.exibir_imagens()
-    pedido.exibir_container()
+    pedido.menuLateral()
+    pedido.page()
