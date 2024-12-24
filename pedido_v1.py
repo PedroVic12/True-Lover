@@ -303,6 +303,7 @@ class PedidoNamoro:
             widgets.criar_header("Feliz Natal, Danielle Serrano! :)", )
             st.divider()
             widgets.criar_subheader("🎶 Play na nossa musiquinha? Escolha entre as opções 🎶")
+            widgets.criar_markdown("# Não tem HSM ta muito na cara já xD")
             widgets.criar_subheader("1) Opção Natalina")
             widgets.criar_audio(
                 ASSETS_PATH
@@ -312,7 +313,7 @@ class PedidoNamoro:
             widgets.criar_subheader("2) Opção Romântica")
             widgets.criar_audio(
                 ASSETS_PATH
-                + "music/Justin Bieber - Anyone (Official Live Performance).mp3",
+                + "music/two_is_better.mp3",
                 format="audio/mpeg",
             )
 
