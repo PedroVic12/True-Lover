@@ -41,7 +41,12 @@ class StreamlitComponents:
 
     @staticmethod
     def criar_sidebar():
-        """Cria a barra lateral."""
+        """Cria a barra lateral com ícones e texto."""
+        st.info("Clique na seta no canto superior esquerdo para abrir o menu lateral.")
+
+        #st.sidebar.markdown("# Menu Lateral")
+
+
         return st.sidebar
 
     @staticmethod
