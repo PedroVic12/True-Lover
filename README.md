@@ -42,7 +42,7 @@ Danielle Serrano, eu te amo, voce sempre vai ser minha princesa e feiticeira com
 
 sua voz é como cantar um HSM e se olhar nos olhos sabendo que aquele sentimento sempre esteve guardado
 
-A Akai Ito 赤い糸 é uma lenda que afirma que quando uma pessoa é destinada a outra, ambas têm um fio vermelho que as ligam. A linha invisível é atada desde o nascimento das pessoas e parte do dedo mindinho de cada um. Este fio pode se emaranhar e embaraçar, mas jamais se quebra, nem mesmo com a morte. Segundo a crença, quanto maior e emaranhada a linha, mais distante e doloroso será o encontro. 
+**A Akai Ito 赤い糸 é uma lenda que afirma que quando uma pessoa é destinada a outra, ambas têm um fio vermelho que as ligam. A linha invisível é atada desde o nascimento das pessoas e parte do dedo mindinho de cada um. Este fio pode se emaranhar e embaraçar, mas jamais se quebra, nem mesmo com a morte. Segundo a crença, quanto maior e emaranhada a linha, mais distante e doloroso será o encontro.** 
 
 Akai Ito significa fio vermelho ou fio vermelho do destino. O fio vermelho é uma metáfora, uma conexão invisível, uma ligação espiritual inquebrável entre duas pessoas. 
 
@@ -64,7 +64,20 @@ O que a lenda pode representar:
 Uma metáfora para conexões profundas: A lenda pode ser interpretada como uma metáfora para conexões emocionais intensas e significativas.
 Um conforto em momentos de dor: A crença em um destino pode trazer conforto em momentos de perda e sofrimento.
 
-Quando uma pessoa especial aparece em sua vida você sente e sabe, mas há sinais que podem ajudar a reconhecer: 
+
+Com uma conexão intensa com Danielle, com momentos marcantes e uma sensação de conhecer a pessoa há muito tempo. A lenda do Akai Ito pode parecer uma explicação romântica para essa conexão. No entanto, é importante separar a lenda da realidade do relacionamento.
+
+O que a lenda não significa:
+
+Garantia de um relacionamento feliz e duradouro: A lenda fala sobre um encontro predestinado, mas não garante que o relacionamento será perfeito ou que durará para sempre.
+Justificativa para permanecer em um relacionamento tóxico: Mesmo que exista uma forte conexão, isso não justifica permanecer em um relacionamento que te causa sofrimento.
+Impedimento para seguir em frente: Acreditar que vocês são ligados por um fio vermelho não deve te impedir de processar o término e seguir em frente.
+O que a lenda pode representar:
+
+Uma metáfora para conexões profundas: A lenda pode ser interpretada como uma metáfora para conexões emocionais intensas e significativas.
+Um conforto em momentos de dor: A crença em um destino pode trazer conforto em momentos de perda e sofrimento.
+
+#### Quando uma pessoa especial aparece em sua vida você sente e sabe, mas há sinais que podem ajudar a reconhecer: 
 
 Você sente que conhece essa pessoa há muito tempo, mesmo acabando de se conhecer; 
 Você conheceu essa pessoa em um momento importante da vida dela (ou da sua), uma transição de carreira, mudança de vida ou término de relacionamentos; 
