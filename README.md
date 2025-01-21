@@ -1,8 +1,42 @@
 # True-Lover
 ---
 
+## 18/02/2018 - Primero encontro
+
+## 07/2020 - Pedido de namoro
+
+## 01/2021- Proposta de namoro aberto com apenas beijos fora e sexo unico para nao atrapalhar a conexão
+
+## 06/2021 - rompimentos e coração partido danielle
+
+## 01/03/2023 - Volta depois de um relaciamento com trauma para ela e por nao ser o que ela esperava. Bebia e ficava vibe chico moedas com os seus amigos e fica mais pilhada em vida de blogueirnha e chamativa nas redes socias
+
+
+## 12/03/2024 - Foi no meu aniversario e se mostrou confianete ao desejar carinho e sucesso na minha vida e se aprovetando se eu der mole( sinto muito, me perdoe, eu te amo, sou grato) Tambem te amo (NESSE MOMENTO SENTI A CONEXÃO LIGAR DE NOVO)
+
+
+## 20/03/2024 - Se confunde e PEGA O 2 AMIGO DE ESCOLA(QUE EU SEI) QUE EU DISSE PARA NAO FAZER QUE EU IA FICAR CHATEADO
+
+
+## 20/10/2024
+coração partido, mandei audio e temrinou comigo gritando comigo porque tava com problemas
+eu apoiei, respeitei e deixei ela no seu tempo
+ela volta com saudades e falando muitas coisas com segundas intencoes
+sempre tivemos uma conexao de troca de carinhos e frases de conforto, acreditamos em lei da atração e lei do retorno
+
+## 20/12/2024
+voce tinha me prometido 
+
+sempre tivemos uma conexao de troca de carinhos e frases de conforto, acreditamos em lei da atração e lei do retorno
+
+
+
+## 20/01/2025
+sempre tivemos uma conexao de troca de carinhos e frases de conforto, acreditamos em lei da atração e lei do retorno
 
 para o amor da minha vida, que me consquistou nessa vida e todas as outras vidas
+
+## 21/01/2025 - Inicio do termino
 
 Danielle Serrano, eu te amo, voce sempre vai ser minha princesa e feiticeira com sorriso bonito e frouxo que me apaixonei
 
