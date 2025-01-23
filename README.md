@@ -56,9 +56,8 @@ Como saber quem é seu Akai Ito?
 
 O que a lenda não significa:
 
-Garantia de um relacionamento feliz e duradouro: A lenda fala sobre um encontro predestinado, mas não garante que o relacionamento será perfeito ou que durará para sempre.
-Justificativa para permanecer em um relacionamento tóxico: Mesmo que exista uma forte conexão, isso não justifica permanecer em um relacionamento que te causa sofrimento.
-Impedimento para seguir em frente: Acreditar que vocês são ligados por um fio vermelho não deve te impedir de processar o término e seguir em frente.
+Garantia de um relacionamento feliz e duradouro: A lenda fala sobre um encontro predestinado, mas não garante que o relacionamento será perfeito ou que durará para sempre e
+não justifica permanecer em um relacionamento que te causa sofrimento. Mesmo que exista uma forte conexão, acreditar que vocês são ligados por um fio vermelho não deve te impedir de processar o término e seguir em frente.
 O que a lenda pode representar:
 
 Uma metáfora para conexões profundas: A lenda pode ser interpretada como uma metáfora para conexões emocionais intensas e significativas.
@@ -67,23 +66,15 @@ Um conforto em momentos de dor: A crença em um destino pode trazer conforto em 
 
 Com uma conexão intensa com Danielle, com momentos marcantes e uma sensação de conhecer a pessoa há muito tempo. A lenda do Akai Ito pode parecer uma explicação romântica para essa conexão. No entanto, é importante separar a lenda da realidade do relacionamento.
 
-O que a lenda não significa:
-
-Garantia de um relacionamento feliz e duradouro: A lenda fala sobre um encontro predestinado, mas não garante que o relacionamento será perfeito ou que durará para sempre.
-Justificativa para permanecer em um relacionamento tóxico: Mesmo que exista uma forte conexão, isso não justifica permanecer em um relacionamento que te causa sofrimento.
-Impedimento para seguir em frente: Acreditar que vocês são ligados por um fio vermelho não deve te impedir de processar o término e seguir em frente.
-O que a lenda pode representar:
-
-Uma metáfora para conexões profundas: A lenda pode ser interpretada como uma metáfora para conexões emocionais intensas e significativas.
-Um conforto em momentos de dor: A crença em um destino pode trazer conforto em momentos de perda e sofrimento.
 
 #### Quando uma pessoa especial aparece em sua vida você sente e sabe, mas há sinais que podem ajudar a reconhecer: 
 
 Você sente que conhece essa pessoa há muito tempo, mesmo acabando de se conhecer; 
 Você conheceu essa pessoa em um momento importante da vida dela (ou da sua), uma transição de carreira, mudança de vida ou término de relacionamentos; 
 Vocês dois sempre se encontram em coincidências, em lugares inesperados;
-Você se sente instantaneamente conectado à pessoa e de forma intensa.
-Embora nenhum desses seja garantia de uma vida feliz a dois, estes são alguns sinais para reconhecer a conexão entre você e outra pessoa. Confie em seu coração quando ele bater de forma diferente por alguém, geralmente é ele quem te mostra o significado de uma pessoa em sua vida.
+Você se sente instantaneamente conectado à pessoa e de forma intensa.(Eu e danielle faziamos reiki um no outro, troca de energia a distancia e ela ja me cuidou muito espiritualmente quando era mais novo. Depois de um tempo ja tinha percebido que nossos corações estavam conectadas e na mesma frequencia.) 
+
+Confie em seu coração quando ele bater de forma diferente por alguém, geralmente é ele quem te mostra o significado de uma pessoa em sua vida.
 
 
 Eu estive com voce nos momentos dificeis e voce esteve nos meus, mas acho que somos passarinhos que cresceram em gaiolas em nossas familias e nosso destino entrelaçando para reviver mometnos marcantes mesmo que voce tenha tido inseguranças partindo de mim pelo nosso passado.
