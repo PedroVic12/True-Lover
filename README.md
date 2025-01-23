@@ -70,9 +70,13 @@ Com uma conexão intensa com Danielle, com momentos marcantes e uma sensação d
 #### Quando uma pessoa especial aparece em sua vida você sente e sabe, mas há sinais que podem ajudar a reconhecer: 
 
 Você sente que conhece essa pessoa há muito tempo, mesmo acabando de se conhecer; 
+
 Você conheceu essa pessoa em um momento importante da vida dela (ou da sua), uma transição de carreira, mudança de vida ou término de relacionamentos; 
+
 Vocês dois sempre se encontram em coincidências, em lugares inesperados;
-Você se sente instantaneamente conectado à pessoa e de forma intensa.(Eu e danielle faziamos reiki um no outro, troca de energia a distancia e ela ja me cuidou muito espiritualmente quando era mais novo. Depois de um tempo ja tinha percebido que nossos corações estavam conectadas e na mesma frequencia.) 
+
+Você se sente instantaneamente conectado à pessoa e de forma intensa.(Eu e danielle faziamos reiki um no outro, troca de energia a distancia e ela ja me cuidou muito 
+espiritualmente quando era mais novo. Depois de um tempo ja tinha percebido que nossos corações estavam conectadas e na mesma frequencia.) 
 
 Confie em seu coração quando ele bater de forma diferente por alguém, geralmente é ele quem te mostra o significado de uma pessoa em sua vida.
 
