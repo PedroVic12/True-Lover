@@ -85,7 +85,9 @@ Eu estive com voce nos momentos dificeis e voce esteve nos meus, mas acho que so
 
 Eu sempre quis te namorar na pandemia, mas tudo era complicado para mim, voce nao respeitou meu espaço
 
-em 2024, eu aceitei 5 meses de amor verdadeiro e terminamos, achei que fosse o amor da minha vida, como chegamos nesse nivel? VOCE TEVE A CORAGEM DE TERMINAR COMMIGO POR MENSAGEM PORQUE NAO TEM CORAGEM DE OLHAR NO MEU OLHO.
+em 2024, eu aceitei 5 meses de **amor verdadeiro** e terminamos, **achei que fosse o amor da minha vida**, como chegamos nesse nivel? 
+
+VOCE TEVE A CORAGEM DE TERMINAR COMMIGO POR MENSAGEM PORQUE NAO TEM CORAGEM DE OLHAR NO MEU OLHO.
 
 apesar que voce partiu meu coração ao me trair 2x e depois de mim e outro cara voce preferiu seguir sua noite como fosse chumbo trocado com Leilane, Mariah, Thais, Milena, e todas outras que me manipulava (OU EU OU ELA para bloquear no celular)
 
