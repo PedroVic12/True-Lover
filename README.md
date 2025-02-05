@@ -9,7 +9,12 @@
 
 ## 06/2021 - rompimentos e coração partido danielle
 
-## 01/03/2023 - Volta depois de um relaciamento com trauma para ela e por nao ser o que ela esperava. Bebia e ficava vibe chico moedas com os seus amigos e fica mais pilhada em vida de blogueirnha e chamativa nas redes socias
+reconheço que deixei ela muito triste ao reforçar que nao estava pronto para um relacionamento naquel momento.
+
+
+## 01/03/2023 
+
+Ela Volta depois de um relaciamento com trauma para ela e por nao ser o que ela esperava. Bebia e ficava vibe chico moedas com os seus amigos e fica mais pilhada em vida de blogueirnha fitness e chamativa nas redes socias
 
 
 ## 12/03/2024 - Foi no meu aniversario e se mostrou confianete ao desejar carinho e sucesso na minha vida e se aprovetando se eu der mole( sinto muito, me perdoe, eu te amo, sou grato) Tambem te amo (NESSE MOMENTO SENTI A CONEXÃO LIGAR DE NOVO)
@@ -123,8 +128,9 @@ espiritualmente quando era mais novo. Depois de um tempo ja tinha percebido que 
 
 Confie em seu coração quando ele bater de forma diferente por alguém, geralmente é ele quem te mostra o significado de uma pessoa em sua vida.
 
+## 04/02/2025 Minha querida Danielle Serrano ... 
 
-Eu estive com voce nos momentos dificeis e voce esteve nos meus, mas acho que somos passarinhos que cresceram em gaiolas em nossas familias e nosso destino entrelaçando para reviver mometnos marcantes mesmo que voce tenha tido inseguranças partindo de mim pelo nosso passado.
+Eu estive com voce nos momentos mais marcantes, seja eles os felizes, tristes, superação e principalmente nos dificeis e voce esteve nos meus e do meu lado em todos momentos, mas acho que somos passarinhos que cresceram em gaiolas em nossas familias e nosso destino entrelaçando para reviver momentos marcantes mesmo que voce tenha tido inseguranças partindo de mim pelo nosso passado.
 
 Eu sempre quis te namorar na pandemia, mas tudo era complicado para mim, voce nao respeitou meu espaço
 
@@ -134,7 +140,9 @@ VOCE TEVE A CORAGEM DE TERMINAR COMMIGO POR MENSAGEM PORQUE NAO TEM CORAGEM DE O
 
 apesar que voce partiu meu coração ao me trair 2x e depois de mim e outro cara voce preferiu seguir sua noite como fosse chumbo trocado com Leilane, Mariah, Thais, Milena, e todas outras que me manipulava (OU EU OU ELA para bloquear no celular)
 
-Estou livre, estou feliz, foi um ciclo que eu mais fiquei feliz pois tive amor sincero e dei mue melhor. Danille, espero que esteja bem, voce sempre estara dentro do meu coração e eu torcendo para seu suceço. Vamos ver quem vai ser mais flexivel, gostoso e inteligente primeiro antes dos 30? alem de ser CLT homeoffice viajando o mundo? fazendo amor com ar condicionado nos 15 com voce falando que me ama, quando dançamos HSM, quando tivemos momentos de incerteza que se transformaram em paz e cura. Eu te amo, nunca, com meus 26 anos de idade senti uma conexão como a nossa. Mas.... em contos de fadas, quem disse que o principe bonzinho fica a princesa? Sereia, feiticeira, Prof. Yoga, Veterinaria, Amor da minha vida. Fica bem, meu bem... desde o carnaval de 2018 foi incrivel para mim te conhecer por esses 7 anos de amor com ciclos e aprendizados.
+Estou livre, estou feliz, foi um ciclo que eu mais fiquei feliz pois tive amor sincero e dei mue melhor. Danille, espero que esteja bem, voce sempre estara dentro do meu coração e eu torcendo para seu suceço. Vamos ver quem vai ser mais flexivel, Rico,  Gostoso, Independente e Inteligente primeiro antes dos 30? alem de ser CLT homeoffice viajando  pelo mundo? fazendo amor com ar condicionado nos 15 com voce falando que me ama olhando nos meus olhos, quando dançamos HSM, quando tivemos momentos de incerteza que se transformaram em paz e cura. 
+
+Eu te amo, nunca, com meus 26 anos de idade senti uma conexão como a nossa. Mas.... em contos de fadas, quem disse que o principe bonzinho fica a princesa? Sereia, feiticeira, Prof. Yoga, Veterinaria, Amor da minha vida. Fica bem, meu bem... desde o carnaval de 2018 foi incrivel para mim te conhecer por esses 7 anos de amor com ciclos e aprendizados.
 
 
 
