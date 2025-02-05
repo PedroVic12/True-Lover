@@ -9,7 +9,7 @@
 
 ## 06/2021 - rompimentos e coração partido danielle
 
-reconheço que deixei ela muito triste ao reforçar que nao estava pronto para um relacionamento naquel momento.
+reconheço que deixei ela muito triste ao reforçar que nao estava pronto para um relacionamento naquele momento.
 
 
 ## 01/03/2023 
@@ -30,16 +30,10 @@ ela volta com saudades e falando muitas coisas com segundas intencoes
 sempre tivemos uma conexao de troca de carinhos e frases de conforto, acreditamos em lei da atração e lei do retorno
 
 ## 20/12/2024
-voce tinha me prometido 
+voce tinha me prometido... prometeu que a gente passaria o natal e a virada do ano jutnos... que a primeira praia do ano seria kuntos... sem falar da fantasia de casal no carnaval combinando... seja sincera, o que te fez mudar assim? tao derrepente?
 
-sempre tivemos uma conexao de troca de carinhos e frases de conforto, acreditamos em lei da atração e lei do retorno
+sempre tivemos uma conexao de troca de carinhos e frases de conforto, acreditamos em lei da atração, lei do retorno e na espiritualidade 
 
-
-
-## 20/01/2025
-sempre tivemos uma conexao de troca de carinhos e frases de conforto, acreditamos em lei da atração e lei do retorno
-
-para o amor da minha vida, que me consquistou nessa vida e todas as outras vidas
 
 ## 21/01/2025 - Inicio do termino depois de 5 anos de uma relação de idas e vindas, conexão intensa e falta de comunicação e sinceridade um com o outro.
 
@@ -86,21 +80,21 @@ Doeu, doeu muito, foi a 3x que ela partiu meu coração nesses últimos 5 meses 
 
 ---
 
-Danielle Serrano, eu te amo, voce sempre vai ser minha princesa e feiticeira com sorriso bonito e frouxo que me apaixonei
+Está carta vai para o amor da minha vida, que me consquistou nessa vida e todas as outras vidas..
 
-sua voz é como cantar um HSM e se olhar nos olhos sabendo que aquele sentimento sempre esteve guardado
+Danielle Serrano, eu te amo,e sempre vou te amar. Voce sempre vai ser minha princesa e feiticeira com sorriso bonito e frouxo que me apaixonei.
+
+sua voz é como cantar um HSM e se olhar nos olhos sabendo que aquele sentimento sempre esteve guardado na minha mente. Voce sempre tera um lugar especial guardado no meu coração 
+
+Toda vez que a gente saia juntos, era legendary, sempre tivemos uma conexão inexplicável onde eu sempre me senti protegido ao seu lado 
+
+---
 
 **A Akai Ito 赤い糸 é uma lenda que afirma que quando uma pessoa é destinada a outra, ambas têm um fio vermelho que as ligam. A linha invisível é atada desde o nascimento das pessoas e parte do dedo mindinho de cada um. Este fio pode se emaranhar e embaraçar, mas jamais se quebra, nem mesmo com a morte. Segundo a crença, quanto maior e emaranhada a linha, mais distante e doloroso será o encontro.** 
 
 Akai Ito significa fio vermelho ou fio vermelho do destino. O fio vermelho é uma metáfora, uma conexão invisível, uma ligação espiritual inquebrável entre duas pessoas. 
 
-
-Nos conhecemos no carnaval e tevemos mometnos de turbulencia e sentimentos intensos, mas o problema sempre foi  monogamia que voce era hipocrita de seguir mas seu abraço e seu cheiro era meu paraiso e voce tirou todo carinho verdadeiro que tinhamos
-
-em 12/03/2024, 25/10/2024, 20/01/25 foram momentos marcantes na minha memoria e pro meu coração. Epsero que lembre de mim 
-
-
-Como saber quem é seu Akai Ito?
+### Como saber quem é seu Akai Ito?
 
 O que a lenda não significa:
 
@@ -117,9 +111,9 @@ Com uma conexão intensa com Danielle, com momentos marcantes e uma sensação d
 
 #### Quando uma pessoa especial aparece em sua vida você sente e sabe, mas há sinais que podem ajudar a reconhecer: 
 
-Você sente que conhece essa pessoa há muito tempo, mesmo acabando de se conhecer; 
+Você sente que conhece essa pessoa há muito tempo, mesmo acabando de se conhecer.
 
-Você conheceu essa pessoa em um momento importante da vida dela (ou da sua), uma transição de carreira, mudança de vida ou término de relacionamentos; 
+Você conheceu essa pessoa em um momento importante da vida dela (ou da sua), uma transição de carreira, mudança de vida ou término de relacionamentos
 
 Vocês dois sempre se encontram em coincidências, em lugares inesperados;
 
@@ -128,7 +122,13 @@ espiritualmente quando era mais novo. Depois de um tempo ja tinha percebido que 
 
 Confie em seu coração quando ele bater de forma diferente por alguém, geralmente é ele quem te mostra o significado de uma pessoa em sua vida.
 
+---
+
 ## 04/02/2025 Minha querida Danielle Serrano ... 
+
+Nos conhecemos no carnaval e tivemos momentos e memorias inesquecíveis com sentimentos intensos, mas o problema sempre foi  monogamia que voce era hipocrita de seguir mas seu abraço e seu cheiro era meu paraiso e voce tirou todo carinho verdadeiro que tinhamos.
+
+em 12/03/2024, 25/10/2024, 20/01/25 foram momentos marcantes na minha memoria e pro meu coração. Espero se que lembre de mim 
 
 Eu estive com voce nos momentos mais marcantes, seja eles os felizes, tristes, superação e principalmente nos dificeis e voce esteve nos meus e do meu lado em todos momentos, mas acho que somos passarinhos que cresceram em gaiolas em nossas familias e nosso destino entrelaçando para reviver momentos marcantes mesmo que voce tenha tido inseguranças partindo de mim pelo nosso passado.
 
