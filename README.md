@@ -80,16 +80,6 @@ Doeu, doeu muito, foi a 3x que ela partiu meu coração nesses últimos 5 meses 
 
 ---
 
-Está carta vai para o amor da minha vida, que me consquistou nessa vida e todas as outras vidas..
-
-Danielle Serrano, eu te amo,e sempre vou te amar. Voce sempre vai ser minha princesa e feiticeira com sorriso bonito e frouxo que me apaixonei.
-
-sua voz é como cantar um HSM e se olhar nos olhos sabendo que aquele sentimento sempre esteve guardado na minha mente. Voce sempre tera um lugar especial guardado no meu coração 
-
-Toda vez que a gente saia juntos, era legendary, sempre tivemos uma conexão inexplicável onde eu sempre me senti protegido ao seu lado 
-
----
-
 **A Akai Ito 赤い糸 é uma lenda que afirma que quando uma pessoa é destinada a outra, ambas têm um fio vermelho que as ligam. A linha invisível é atada desde o nascimento das pessoas e parte do dedo mindinho de cada um. Este fio pode se emaranhar e embaraçar, mas jamais se quebra, nem mesmo com a morte. Segundo a crença, quanto maior e emaranhada a linha, mais distante e doloroso será o encontro.** 
 
 Akai Ito significa fio vermelho ou fio vermelho do destino. O fio vermelho é uma metáfora, uma conexão invisível, uma ligação espiritual inquebrável entre duas pessoas. 
@@ -125,6 +115,14 @@ Confie em seu coração quando ele bater de forma diferente por alguém, geralme
 ---
 
 ## 04/02/2025 Minha querida Danielle Serrano ... 
+
+Está carta vai para o amor da minha vida, que me consquistou nessa vida e todas as outras vidas..
+
+Danielle Serrano, eu te amo,e sempre vou te amar. Voce sempre vai ser minha princesa e feiticeira com sorriso bonito e frouxo que me apaixonei.
+
+sua voz é como cantar um HSM e se olhar nos olhos sabendo que aquele sentimento sempre esteve guardado na minha mente. Voce sempre tera um lugar especial guardado no meu coração 
+
+Toda vez que a gente saia juntos, era legendary, sempre tivemos uma conexão inexplicável onde eu sempre me senti protegido ao seu lado.
 
 Nos conhecemos no carnaval e tivemos momentos e memorias inesquecíveis com sentimentos intensos, mas o problema sempre foi  monogamia que voce era hipocrita de seguir mas seu abraço e seu cheiro era meu paraiso e voce tirou todo carinho verdadeiro que tinhamos.
 
