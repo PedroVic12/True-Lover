@@ -36,7 +36,50 @@ sempre tivemos uma conexao de troca de carinhos e frases de conforto, acreditamo
 
 para o amor da minha vida, que me consquistou nessa vida e todas as outras vidas
 
-## 21/01/2025 - Inicio do termino
+## 21/01/2025 - Inicio do termino depois de 5 anos de uma relação de idas e vindas, conexão intensa e falta de comunicação e sinceridade um com o outro.
+
+Reconhecimento que estava sofrendo com um relacionamento tóxico: 
+
+## 19/09/2024
+
+quando estava viajando para o Ceará. Vc escolheu querer me dar um fora antes de eu viajar, mesmo assim fui fiel com vc e não fiquei com ninguém 
+
+## 25/10/2024
+foi quando já voltei do ceara, fiz uma carta de amor mais bonita que fiz na vida e entreguei com flores e chocolate pedindo desculpas pela briga da viagem 
+
+## Em 10/11/2024
+
+tive uma briga feia que me fez tirar a barba e perceber que talvez eu tava solteiro nesse momento 
+
+## Em 17/11 antes de seu aniversário
+
+nos beijamos, conversamos, foi incrivel. Ela ainda disse que estava apaixonada dnv com as amigas e me disse que estava com a química do cérebro alterada
+
+
+Em seu aniversário, fui companheiro e fiel escudeiro perto de seus amigos. Estive nos momentos felizes e ainda cuidei dela bêbada a noite anterior e cuidei dela com ressaca 
+
+## 07/12/2024
+
+ela reforça que não quer nada sério. Mas não abre a mão de falar comigo todos os dias como nada tivesse mudado. Sempre fomos carinhosos um com o outro, mas aí já percebi que eu estava solteiro e na reserva dela.
+
+## 26/12/2024
+
+eu estava triste. Fui excluído de passar o natal com minha própria família. Para completar, ela fica bolada comigo com uma postagem minha no Instagram desabafando pro close friends que eu tinha me entregado de corpo e alma por alguém e que não estava sendo correspondido e falando que minha vida tinha mudado como se tivesse tudo de cabeça para baixo pelo coração partido, estava a muito tempo sofrendo e demorou para cair a ficha. Brigamos pois ela achou que eu tivesse fazendo indireta colocando como vilã e ainda me bloqueou de bobeira para vencer a "discussão".
+
+## Até 17/01/2025
+Ela sabia que eu estava sofrendo e continuamos a se falar todo dia, trocando carinho e boas vibrações e os dois afirmando que estavam com um saudade do outro e ainda pensando em marcar uma praia ou um fds comendo hambúrguer.
+
+## Em 19/01/2025
+
+foi o ápice. Convidei ela para sair comigo no dia seguinte e ela recusa. Mas Ela posta que está num bar com outro cara na noite anterior e ainda tive a coragem de ver isso com meus próprios olhos... Campo grande sendo pequeno....
+
+## Em 20/01/2025 foi onde tudo terminou...
+
+ela ainda posta de novo que estava na praia com outro cara. Depois disso, ficou claro que os planos dela na verdade eram com outra pessoa. Ela não queria nada sério COMIGO e sim com outros e ainda me manipulou me dando chances com segundas intenções. "Não é que eu não quero sair com você, mas é que já tenho outros planos" 
+
+Doeu, doeu muito, foi a 3x que ela partiu meu coração nesses últimos 5 meses e demorei algumas semanas para superar tudo isso. Cheguei no meu limite e nunca mais nos falamos novamente 
+
+---
 
 Danielle Serrano, eu te amo, voce sempre vai ser minha princesa e feiticeira com sorriso bonito e frouxo que me apaixonei
 
@@ -85,7 +128,7 @@ Eu estive com voce nos momentos dificeis e voce esteve nos meus, mas acho que so
 
 Eu sempre quis te namorar na pandemia, mas tudo era complicado para mim, voce nao respeitou meu espaço
 
-em 2024, eu aceitei 5 meses de **amor verdadeiro** e terminamos, **achei que fosse o amor da minha vida**, como chegamos nesse nivel? 
+em 2024, eu aceitei 6 meses de **amor verdadeiro** e terminamos, **achei que fosse o amor da minha vida**, como chegamos nesse nivel? 
 
 VOCE TEVE A CORAGEM DE TERMINAR COMMIGO POR MENSAGEM PORQUE NAO TEM CORAGEM DE OLHAR NO MEU OLHO.
 
