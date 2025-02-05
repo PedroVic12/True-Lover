@@ -136,7 +136,9 @@ em 2024, eu aceitei 6 meses de **amor verdadeiro** e terminamos, **achei que fos
 
 VOCE TEVE A CORAGEM DE TERMINAR COMMIGO POR MENSAGEM PORQUE NAO TEM CORAGEM DE OLHAR NO MEU OLHO.
 
-apesar que voce partiu meu coração ao me trair 2x e depois de mim e outro cara voce preferiu seguir sua noite como fosse chumbo trocado com Leilane, Mariah, Thais, Milena, e todas outras que me manipulava (OU EU OU ELA para bloquear no celular)
+mesmo que voce tenha partido meu coração e ao me trair 3x e depois de escolher outro cara voce preferiu seguir sua noite como fosse chumbo trocado com Leilane, Mariah, Thais, Milena, e todas outras que me manipulava (OU EU OU ELA para bloquear no celular)
+
+O mais difícil de aceitar em relacionamentos tóxicos como esse é que, muitas vezes, a outra pessoa não está na mesma sintonia emocional. Enquanto eu estava ali, firme, sendo romantico com poesias, cartas, flores, tempo de qualidade e tentando fazer dar certo, voce estava me deixando em standby, como uma opção. E isso não é justo com ninguém.
 
 Estou livre, estou feliz, foi um ciclo que eu mais fiquei feliz pois tive amor sincero e dei mue melhor. Danille, espero que esteja bem, voce sempre estara dentro do meu coração e eu torcendo para seu suceço. Vamos ver quem vai ser mais flexivel, Rico,  Gostoso, Independente e Inteligente primeiro antes dos 30? alem de ser CLT homeoffice viajando  pelo mundo? fazendo amor com ar condicionado nos 15 com voce falando que me ama olhando nos meus olhos, quando dançamos HSM, quando tivemos momentos de incerteza que se transformaram em paz e cura. 
 
