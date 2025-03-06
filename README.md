@@ -150,3 +150,28 @@ Eu te amo, nunca, com meus 26 anos de idade senti uma conexão como a nossa. Mas
 Nossa virada de ano foi separados... eu senti sua falta... muita, uma saudade que doia o meu peito, demorei 1 mes sofrendo e chorando quase todos os dias mas fui forte e inteligente para reconhecer algumas coisas. 21/02 foi o dia que eu realmente te superei pq depois de tanto tempo de sofrimento eu passei a me valorizar de verdade ao ponto de perceber que nao merecia isso.
 
 Agora, no final de fevereiro voce volta... dizendo coisas... prometendo... falando que se arrepende por ter me magoado.. Que estava em busca de entender a conexão que nos temos. Mas ao mesmo tempo, Palavras proferidas por dois apaixonados são Promessas profundas como oceanos Mas nunca são mantidas. É doloroso receber uma carta tao linda e uma pulseira de algo que eu realmente acredito e dizer que queria me ver todos os dias do carnaval mas nao queria ser emocionada, ao ponto de dizer que me amava no baile do denis e mesmo assim voce escolheu sair com suas amigas e ainda diz nao ter feito chantagem emocional pela escolha que fiz no marcha nerd. Dizer SEMPRE que foi um erro se reaproximar machuca muito... eu nao mereço sofrer desse jeito, se meu amor te assusta por que continuar? Porque ficar confusa por um cara que te jura amor de corpo e alma para sempre? Nao é isso que voce quer? EU nao consigo entender bem isso... mas eu sempre vou te esperar com meu coração carregando toneladas de paixão por voce.
+
+
+## 06/03/25
+
+Por que tudo isso ta acontecendo comigo? Eu já tinha superado, ela veio e voltou me pedindo desculpas, disse que estava disposta a vencer tudo o que tinha acontecido. A gente saiu 2x depois e ela chegou a falar que me amava
+
+Para depois de sair no bloco sozinha, ter ficado com outros caras me descartar dessa forma. E falar que meus sentimentos são drama, DRAMA? vitimismo??? So por ser sincero como se sente? Eu me sinto triste por ter confiado que ela estava disposta a mudar o que me incomoda que não adianta nem se afastar. Pq ela volta, sempre voltou arrependida. Sabe que nós temos uma conexão de akai ito e esses caras aí nunca vão satisfazer ela.
+
+Mas ela sempre vai na cabeça dos outros de quqeuwr ser alguém que não é.
+
+O que me deixa triste é achar que ela tinha mudado, a disposição dela só furou 7 dias enquanto a minha seria eterna
+
+*Refletindo melhor*...
+
+Posso pedir a mão de Danielle com rosas e chocolate com música de fundo. Só basta eu esperar ela na casa dela como surpresa.
+
+Eu tento e se não der certo eu desisto para sempre.
+
+Quero mostrar para ela que sou diferente e "louco" suficiente e mostrar que faço coisas que ninguém mais faz. E mesmo que tentando várias vezes, quero cometer mais um "erro" para ter certeza. E por amar ela, eu estou disposto a isso. 
+
+Eu fiquei surpreendido ela ter voltado e ter ido atrás de mim, ela tava com discurso de carinho e desculpas. Achei que tivesse superado mas meus sentimentos voltaram. Ver ela segurando a minha mão comigo chorando ao meu lado foi significativo, ela disse que estava a disposta a entender a conexão que temos e chegou a fazer uma carta com uma pulseira do Akaito e isso eu não esperava. Mas ela também queria me ver os 5 dias de carnaval e ainda pediu exclusividade falando que queria que eu fosse a uma festa exclusiva com ela e abri mão dos meus compromissos, eu esperava que ela fizesse o mesmo mas disse que queria ir num bloco sozinho com as amigas... Eu me senti trocado... Mais uma vez... E isso me deixou muito triste que me fez chorar de saudade e com medo de perder ela de novo, devido ao nosso histórico.
+
+Ela saiu do bloco sozinha e senti um aperto muito forte no peito, só tem ela na minha mente enquanto ela deve ter ficado com outros caras. Chegamos a ter uma discussão pq eu falei para ela que tava chorando e ela ficou muito tempo online e não quis conversar comigo e minha insegurança acha que ela tava conversando com outro, ela sempre faz isso e depois de dispensa, principalmente quando percebe que estou caidinho por ela... Não quero ser só segunda opção e ser um ponto fixo de alguém. Eu mereço uma pessoa que me ame e respeite.
+
+Meu aniversário está chegando e acho que estou com crises emocionais, mas eu realmente estou disposto na minha última tentativa, pois o que sinto é verdadeiro e acredito na lenda do Akaito
