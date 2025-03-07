@@ -162,7 +162,7 @@ Mas ela sempre vai na cabeça dos outros de quqeuwr ser alguém que não é.
 
 O que me deixa triste é achar que ela tinha mudado, a disposição dela só furou 7 dias enquanto a minha seria eterna
 
-*Refletindo melhor*...
+**Refletindo melhor**...
 
 Posso pedir a mão de Danielle com rosas e chocolate com música de fundo. Só basta eu esperar ela na casa dela como surpresa.
 
@@ -175,3 +175,10 @@ Eu fiquei surpreendido ela ter voltado e ter ido atrás de mim, ela tava com dis
 Ela saiu do bloco sozinha e senti um aperto muito forte no peito, só tem ela na minha mente enquanto ela deve ter ficado com outros caras. Chegamos a ter uma discussão pq eu falei para ela que tava chorando e ela ficou muito tempo online e não quis conversar comigo e minha insegurança acha que ela tava conversando com outro, ela sempre faz isso e depois de dispensa, principalmente quando percebe que estou caidinho por ela... Não quero ser só segunda opção e ser um ponto fixo de alguém. Eu mereço uma pessoa que me ame e respeite.
 
 Meu aniversário está chegando e acho que estou com crises emocionais, mas eu realmente estou disposto na minha última tentativa, pois o que sinto é verdadeiro e acredito na lenda do Akaito
+
+## 07/03/2025
+
+Eu fiquei triste, depois do baile do denis achei que voce queria minha presença. Perguntei se queria sair e voce disse que iria dormir mas depois posta foto de gatinha. Perguntei se queria ir comigo no bloco das Sereias... voce disse que iria sair para o "bloco das meninas" mas quando posta foto tem mais macho do que menina perto de voce... "O golpe esta ai, cai quem quer".
+
+De novo, tudo é prioridade, no domingo fiz questao de demosntrar que voce era minha prioridade
+
