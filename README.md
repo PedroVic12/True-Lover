@@ -3,7 +3,15 @@
 
 ## 18/02/2018 - Primero encontro
 
+Eu lembro ate hoje quando te vi pela primeira vez, sempre achei marrenta haha mas voce sempre foi o tipo que eu gostava. Aproveitamos o carnaval juntos e depois ficamos, lembroa te hoje voce me chamando pelo dedo para te beijar. Beijamos e ja senti nossa conexão florescendo e renascendo de novo. Depois ficamos varias vezes no mesmo carnaval e nos divertimos muito. Começamos a dar role juntos como amigo (com beneficios rs)
+
+## Ano de 2019
+Nos saiamos de forma amiga e naquela epoca cada vez que a gente se encontrava ficava claro para mim o quanto gostava de voce
+
 ## 07/2020 - Pedido de namoro
+
+Voce veio de forma sorrateira conquistando meu coração... aos poucos.. te considerava como uma melhor amiga onde sempre contava com voce. Mas quando te chamei para minha casa como amiga e voce querendo me ensinar a dançar e fazer yoga eu realmente nao achava que tinha maldade. Mas depois que dançamos e voce ficou em cima de mim na minha cama, vi seu olho brilhando e aquele beijo que voce me deu eu fui ate a lua e voltei. Depois desse dia ja aceitei que tava me apaixonando por voce e mesmo nao estando pronto e com diversos problemas de saude mental eu sabia que ter voce no meu lado seria a minha melhor escolha.
+
 
 ## 01/2021- Proposta de namoro aberto com apenas beijos fora e sexo unico para nao atrapalhar a conexão
 
@@ -126,7 +134,7 @@ Toda vez que a gente saia juntos, era legendary, sempre tivemos uma conexão ine
 
 Nos conhecemos no carnaval e tivemos momentos e memorias inesquecíveis com sentimentos intensos, mas o problema sempre foi  monogamia que voce era hipocrita de seguir mas seu abraço e seu cheiro era meu paraiso e voce tirou todo carinho verdadeiro que tinhamos.
 
-em 12/03/2024, 25/10/2024, 20/01/25 foram momentos marcantes na minha memoria e pro meu coração. Espero se que lembre de mim 
+em **12/03/2024, 25/10/2024, 20/01/25** foram momentos marcantes na minha memoria e pro meu coração. Espero se que lembre de mim 
 
 Eu estive com voce nos momentos mais marcantes, seja eles os felizes, tristes, superação e principalmente nos dificeis e voce esteve nos meus e do meu lado em todos momentos, mas acho que somos passarinhos que cresceram em gaiolas em nossas familias e nosso destino entrelaçando para reviver momentos marcantes mesmo que voce tenha tido inseguranças partindo de mim pelo nosso passado.
 
@@ -178,7 +186,13 @@ Meu aniversário está chegando e acho que estou com crises emocionais, mas eu r
 
 ## 07/03/2025
 
-Eu fiquei triste, depois do baile do denis achei que voce queria minha presença. Perguntei se queria sair e voce disse que iria dormir mas depois posta foto de gatinha. Perguntei se queria ir comigo no bloco das Sereias... voce disse que iria sair para o "bloco das meninas" mas quando posta foto tem mais macho do que menina perto de voce... "O golpe esta ai, cai quem quer".
+Eu fiquei triste, depois do baile do denis achei que voce queria minha presença. Perguntei se queria sair e voce disse que iria dormir na segunda feira mas depois posta foto de gatinha... Achei que nao fosse sair e ainda ficou de avisar... Perguntei se queria ir comigo no bloco das Sereias na terça feira... voce disse que iria sair para o "bloco das meninas", eu respeitei seu espaço, nao temos nada mesmo, entenderia que quer passar seu carnaval sozinha mas quando posta foto no Instagram tem mais macho do que menina perto de voce... "O golpe esta ai, cai quem quer". Engraçado, minha intuição tambem nao falha, senti meu coração GRITANDO nesse dia e ele tinha razão.
 
-De novo, tudo é prioridade, no domingo fiz questao de demosntrar que voce era minha prioridade
+De novo, tudo é prioridade, no domingo fiz questao de demosntrar que voce era minha prioridade e separei o dia inteiro so para voce. A gente tinha conversado de se ver apenas 2 dias no carnaval, tava esperançoso te encontrar no bloco na rua pelo acaso mesmo... eu sigo confiando no destino... mas fiquei triste que voce queria ir para o bloco com suas amigas mas cheio de macho em volta, se voce quisesse, teria me chamado... Achei que mesmo sendo o bloco das meninas eu poderia ir e eu ja sou maduro o suficiente se fosse querer ficar com outros, mas custa ser sincera? se fosse assim deixava claro logo que so queria me ver um dia e pronto acabou. Mas nao me manda carta e fala que me ama no baile do Denis para depois MUDAR DE IDEIA TÃO DERREPENTE ASSIM. Depois disso, ficou claro para mim que voce nao queria que eu fosse no bloco com voce... Eu me iludi de novo... E isso... Doi muito... 
+
+Eu passo por um momento dificil e eu realmente mereço ser valorizado e de verdade, nos blocos desse carnaval eu so fiquei com voce, mostrando mais uma vez minha fidelidade, mas nem voce sabe disso... E para piorar na quarta feira de cinzas, onde eu realmente voce estava mal, chorando pensando na gente e do nosso historico e como me fez mal no dia 20/01 e voce lança a frase que sabe que me machuca "ACHO QUE FOI UM ERRO A GENTE SE REAPROXIMAR" De verdade Danielle, SE DECIDE!!!! Voce nao pode sumir e aparecer na minha vida quando quer e bem entender, tem que respeitar meus sentimentos.
+
+Eu preciso focar em mim, priorizar meu bem estar, minha vida profissional, mas eu estava contando que voce tivesse no meu lado nesse momento dificil. Receber a pulseira do akaito e sua cartinha realmente me deixou confuso meus sentimentos, um mix de sentimentos e voce vir falar que tambem ta confusa achei que tivesse sentindo o mesmo, mas para mim voce ainda quer seguir solteira mesmo inves de entender a nossa conexão real que nos temos, de um cara que sempre vai te apoiar e amar em qualquer momento e nao ser so um cara de farrinha.
+
+Isso para mim ta muito claro, sabe por que? voce tem medo de fazer sexo comigo pq sabe que vai se apaixonar, sabe que nosso beijo e nossa pegada na cama é diferente mas voce tem medo de enfretar isso, tem medo de assumir algo. A escolha é simples, faz o que voce quiser, o golpe esta ai e eu sempre estou caindo....
 
