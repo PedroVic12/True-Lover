@@ -28,11 +28,11 @@ Ela Volta depois de um relaciamento com trauma para ela e por nao ser o que ela 
 ## 12/03/2024 - Foi no meu aniversario e se mostrou confianete ao desejar carinho e sucesso na minha vida e se aprovetando se eu der mole( sinto muito, me perdoe, eu te amo, sou grato) Tambem te amo (NESSE MOMENTO SENTI A CONEXÃO LIGAR DE NOVO)
 
 
-## 20/03/2024 - Se confunde e PEGA O 2 AMIGO DE ESCOLA(QUE EU SEI) QUE EU DISSE PARA NAO FAZER QUE EU IA FICAR CHATEADO
+## 20/03/2024 - Se confunde e PEGA O 2 PESSOAS CONHECIDADAS MINHAS, SENDO UM """AMIGO""" DE ESCOLA(QUE EU SEI) QUE EU DISSE PARA NAO FAZER QUE EU IA FICAR CHATEADO NO MEU ANIVERSARIO, SERIO QUE VOCE PENSOU NISSO?
 
 
 ## 20/10/2024
-coração partido, mandei audio e temrinou comigo gritando comigo porque tava com problemas
+coração partido, mandei audio e terminou comigo gritando comigo porque tava com problemas
 eu apoiei, respeitei e deixei ela no seu tempo
 ela volta com saudades e falando muitas coisas com segundas intencoes
 sempre tivemos uma conexao de troca de carinhos e frases de conforto, acreditamos em lei da atração e lei do retorno
