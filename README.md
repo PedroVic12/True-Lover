@@ -196,3 +196,9 @@ Eu preciso focar em mim, priorizar meu bem estar, minha vida profissional, mas e
 
 Isso para mim ta muito claro, sabe por que? voce tem medo de fazer sexo comigo pq sabe que vai se apaixonar, sabe que nosso beijo e nossa pegada na cama é diferente mas voce tem medo de enfretar isso, tem medo de assumir algo. A escolha é simples, faz o que voce quiser, o golpe esta ai e eu sempre estou caindo....
 
+## 15/03/2025 
+Fim de ciclo, busquei terminar isso pessoalmente, deixei claro que nao podemos mais seguir com o que a gente tem. Falei sobre o que sinto, falei dos meus sentimentos que tive em 2024, o quanto foram intensos e nem isso foi suficiente para te balançar. Eu amei voce de corpo e alma, bem do fundo do meu coração, mas pelo menos voce pediu desculpas e reconheceu que me deixou mal, triste, desperançoso.... muita coisa aconteceu comigo nesse momento e eu esperei algo em troca, reciprocidade, empatia, companheirismo, principalmente, amor.....
+
+Mas tudo isso foi levado pelo vento, assim como a gente ter ido no centro espirita juntos, nos tambem mereceços encerrar esse ciclos, vai doer muito em mim te ver so como amiga, mas prefiro te ver assim do que longe e afastada de mim. Voce realmente nao tem noção dos sentimentos que sinto por voce, do quanto eu moveria montanhas se fosse preciso, mas acho que no fundo voce queria isso. Eu nao mereço uma pessoa confusa, nao mereço uma pessoa que demora para responder quando eu pergunto o que sente, voce mesma disse que eu mereço ter alguem que me ame do jeito que eu amo as pessoas. A questão que sempre foi voce, voce mudou isso em mim e eu estava disposto a ser seu principe e fazer acontecer, vencer barreiras, vencer desafios, tudo juntos... Mas nao depende de mim. 
+
+No mercurio retrogado de Aries em 2025, nos encerramos esse ciclo, e enfim voltamos para onde começamnos, sendo amigos... apenas... amigos....
