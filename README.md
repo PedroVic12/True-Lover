@@ -6,7 +6,7 @@
 Eu lembro ate hoje quando te vi pela primeira vez, sempre achei marrenta haha mas voce sempre foi o tipo que eu gostava. Aproveitamos o carnaval juntos e depois ficamos, lembroa te hoje voce me chamando pelo dedo para te beijar. Beijamos e ja senti nossa conexão florescendo e renascendo de novo. Depois ficamos varias vezes no mesmo carnaval e nos divertimos muito. Começamos a dar role juntos como amigo (com beneficios rs)
 
 ## Ano de 2019
-Nos saiamos de forma amiga e naquela epoca cada vez que a gente se encontrava ficava claro para mim o quanto gostava de voce. Foi ai que começou meu sentimento por voce, aos poucos nossa amizade ficava cada vez mais florecida, cada vez mais o amor se instalava no meu coração mas eu tentava seguir com minha pose de pre adolescente com 20 anos na epoca, apenas um jovem inconseguente e caotico que voce se apaixonou.... onde esse garoto.... morreu...
+Nos saiamos de forma amiga e naquela epoca cada vez que a gente se encontrava ficava claro para mim o quanto gostava de voce. Foi ai que começou meu sentimento por voce, aos poucos nossa amizade ficava cada vez mais florecida, cada vez mais o amor se instalava no meu coração mas eu tentava seguir com minha pose de pre adolescente com 20 anos na epoca, apenas um jovem inconseguente e caotico que voce se apaixonou.... onde esse garoto.... morreu... E conforme os anos, renasceu um Homem
 
 ## 07/2020 - Pedido de namoro
 
