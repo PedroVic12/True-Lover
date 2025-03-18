@@ -13,7 +13,7 @@ Nos saiamos de forma amiga e naquela epoca cada vez que a gente se encontrava fi
 Voce veio de forma sorrateira conquistando meu coração... aos poucos.. te considerava como uma melhor amiga onde sempre contava com voce. Mas quando te chamei para minha casa como amiga e voce querendo me ensinar a dançar e fazer yoga eu realmente nao achava que tinha maldade. Mas depois que dançamos e voce ficou em cima de mim na minha cama, vi seu olho brilhando e aquele beijo que voce me deu eu fui ate a lua e voltei. Depois desse dia ja aceitei que tava me apaixonando por voce e mesmo nao estando pronto e com diversos problemas de saude mental eu sabia que ter voce no meu lado seria a minha melhor escolha.
 
 
-## 01/2021- Proposta de namoro aberto com apenas beijos fora e sexo unico para nao atrapalhar a conexão
+## 03/2021- Proposta de namoro aberto com apenas beijos fora e sexo unico para nao atrapalhar a conexão
 
 ## 06/2021 - rompimentos e coração partido danielle
 
