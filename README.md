@@ -1,4 +1,4 @@
-# True-Lover
+# True-Lover, A History from Pedro Victor Veras
 ---
 
 ## 18/02/2018 - Primero encontro
@@ -28,13 +28,26 @@ Ela Volta depois de um relaciamento com trauma para ela e por nao ser o que ela 
 ## 12/03/2024 - Foi no meu aniversario e se mostrou confianete ao desejar carinho e sucesso na minha vida e se aprovetando se eu der mole( sinto muito, me perdoe, eu te amo, sou grato) Tambem te amo (NESSE MOMENTO SENTI A CONEXÃO LIGAR DE NOVO)
 
 
-## 20/03/2024 - Se confunde e PEGA O 2 PESSOAS CONHECIDADAS MINHAS, SENDO UM """AMIGO""" DE ESCOLA(QUE EU SEI) QUE EU DISSE PARA NAO FAZER QUE EU IA FICAR CHATEADO NO MEU ANIVERSARIO, SERIO QUE VOCE PENSOU NISSO?
+#### 20/03/2024 - Se confunde e PEGA O 2 PESSOAS CONHECIDADAS MINHAS, SENDO UM """AMIGO""" DE ESCOLA(QUE EU SEI) QUE EU DISSE PARA NAO FAZER QUE EU IA FICAR CHATEADO NO MEU ANIVERSARIO, SERIO QUE VOCE PENSOU NISSO?
+
+## 10/08/2024
+
+Uma data especial... nos tinhamos voltado a se falar... Nossa amizade estava leve e tranquila, convidei ela para um cha de bebe como amiga mesmo (mesmo sendo ex kkkkkkkkk) Mas depois fomos num evento de rock no shopping, senti o clima indo para o inevitavel.... Na minha cabeça vinha aquela duvida... mas o meu coração tinha esse desejo, mesmo eu enrolando bastante, nos beijamos, foi incrivel, eu nao te beijava a muito tempo e eu tava com muita saudades. Senti nesse dia o amor florescendo em mim de novo
+
+
+## 01/09/2024
+
+Mais uma noite especial... voce estava linda, ate de salto alto... Nos conversamos e passeamos mesmo sendo em campo grande hahaha mas por um momento decidimos nesse dia transar, como sempre, nosso sexo é algo ineplicavel, somente com voce eu sinto essa energia assim, tao boa, desde o sexo trantrico que nos fizemos.
+Nessa noite para mim foi inesquecivel, pois ate a data atual, foi minha ultima atividade sexual, e eu deixei claro que estava me resguardando para transar so com voce.... mas aposto que voce nao fez isso... mas eu fiz... por voce!! Para mim foi muito especial, transar com voce é algo incrivel e ainda tive o prazer de fazer massagem e dormir com voce do meu lado. Acho que depois disso, nossos sentimentos um pelo outro começaram aumentar.
 
 
 ## 20/10/2024
-coração partido, mandei audio e terminou comigo gritando comigo porque tava com problemas
-eu apoiei, respeitei e deixei ela no seu tempo
+coração partido, mandei audio normal de manha e terminou comigo gritando comigo porque tava com problemas pessoais e com uma rotina agitada. Eu entendo que estava sobrecarregada, mas eu so queria te ajudar!!! So queria poder ser importante na sua vida, a qualquer custo, sempre te apoiar e incentivar. 
+
+eu apoiei, respeitei e deixei ela no seu tempo...
+
 ela volta com saudades e falando muitas coisas com segundas intencoes
+
 sempre tivemos uma conexao de troca de carinhos e frases de conforto, acreditamos em lei da atração e lei do retorno
 
 ## 20/12/2024
@@ -43,31 +56,32 @@ voce tinha me prometido... prometeu que a gente passaria o natal e a virada do a
 sempre tivemos uma conexao de troca de carinhos e frases de conforto, acreditamos em lei da atração, lei do retorno e na espiritualidade 
 
 
-## 21/01/2025 - Inicio do termino depois de 5 anos de uma relação de idas e vindas, conexão intensa e falta de comunicação e sinceridade um com o outro.
+## Inicio do termino depois de 5 anos de uma relação de idas e vindas, conexão intensa e falta de comunicação e sinceridade um com o outro.
 
 Reconhecimento que estava sofrendo com um relacionamento tóxico: 
 
 ## 19/09/2024
 
-quando estava viajando para o Ceará. Vc escolheu querer me dar um fora antes de eu viajar, mesmo assim fui fiel com vc e não fiquei com ninguém 
+quando estava viajando para o Ceará. Vc escolheu querer me dar um fora antes de eu viajar, mesmo assim fui fiel com vc e não fiquei com ninguém e quis demonstrar isso como voto de confiança, algo que todo relacionamento deve ter.
+
+Talvez nosso destino mudou ai, pois voce mesma disse que esse epsodio foi o que mudou o que voce sente por mim. Mesmo que eu tenha tido boas intençoes e fui sincero desde o inicio que eu queria algo serio com voce.
 
 ## 25/10/2024
-foi quando já voltei do ceara, fiz uma carta de amor mais bonita que fiz na vida e entreguei com flores e chocolate pedindo desculpas pela briga da viagem 
+foi quando já voltei do ceara, fiz uma carta de amor mais bonita que fiz na vida e entreguei com flores e chocolate pedindo desculpas pela briga da viagem. Pelo menos com isso, ela me desbloqueou e voltamos a se falar, eu realmente fiz a carta com muito amor e carinho que demorou 3 dias para ficar pronta.
 
 ## Em 10/11/2024
 
-tive uma briga feia que me fez tirar a barba e perceber que talvez eu tava solteiro nesse momento 
+tive uma briga feia sobre Tinder que me fez tirar a barba e perceber que talvez eu tava solteiro nesse momento...
 
-## Em 17/11 antes de seu aniversário
+## Em 17/11 antes de seu aniversário, no shopping
 
 nos beijamos, conversamos, foi incrivel. Ela ainda disse que estava apaixonada dnv com as amigas e me disse que estava com a química do cérebro alterada
-
 
 Em seu aniversário, fui companheiro e fiel escudeiro perto de seus amigos. Estive nos momentos felizes e ainda cuidei dela bêbada a noite anterior e cuidei dela com ressaca 
 
 ## 07/12/2024
 
-ela reforça que não quer nada sério. Mas não abre a mão de falar comigo todos os dias como nada tivesse mudado. Sempre fomos carinhosos um com o outro, mas aí já percebi que eu estava solteiro e na reserva dela.
+ela reforça que não quer nada sério. Mas não abre a mão de falar comigo todos os dias como nada tivesse mudado. Sempre fomos carinhosos um com o outro, mas aí já percebi que eu estava solteiro e na reserva dela. Não gosto de ser tratado apenas como opção, enquanto ela era minha total prioridade, isso nao é depedencia emocional, é amor.
 
 ## 26/12/2024
 
