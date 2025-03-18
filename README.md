@@ -40,21 +40,7 @@ Uma data especial... nos tinhamos voltado a se falar... Nossa amizade estava lev
 Mais uma noite especial... voce estava linda, ate de salto alto... Nos conversamos e passeamos mesmo sendo em campo grande hahaha mas por um momento decidimos nesse dia transar, como sempre, nosso sexo é algo ineplicavel, somente com voce eu sinto essa energia assim, tao boa, desde o sexo trantrico que nos fizemos.
 Nessa noite para mim foi inesquecivel, pois ate a data atual, foi minha ultima atividade sexual, e eu deixei claro que estava me resguardando para transar so com voce.... mas aposto que voce nao fez isso... mas eu fiz... por voce!! Para mim foi muito especial, transar com voce é algo incrivel e ainda tive o prazer de fazer massagem e dormir com voce do meu lado. Acho que depois disso, nossos sentimentos um pelo outro começaram aumentar.
 
-
-## 20/10/2024
-coração partido, mandei audio normal de manha e terminou comigo gritando comigo porque tava com problemas pessoais e com uma rotina agitada. Eu entendo que estava sobrecarregada, mas eu so queria te ajudar!!! So queria poder ser importante na sua vida, a qualquer custo, sempre te apoiar e incentivar. 
-
-eu apoiei, respeitei e deixei ela no seu tempo...
-
-ela volta com saudades e falando muitas coisas com segundas intencoes
-
-sempre tivemos uma conexao de troca de carinhos e frases de conforto, acreditamos em lei da atração e lei do retorno
-
-## 20/12/2024
-voce tinha me prometido... prometeu que a gente passaria o natal e a virada do ano jutnos... que a primeira praia do ano seria kuntos... sem falar da fantasia de casal no carnaval combinando... seja sincera, o que te fez mudar assim? tao derrepente?
-
-sempre tivemos uma conexao de troca de carinhos e frases de conforto, acreditamos em lei da atração, lei do retorno e na espiritualidade 
-
+Depois disso chegamos a conversar em um date no habbis sobre minha viagem e como eu tava disposto a entrar num relacionamento monogamico com voce
 
 ## Inicio do termino depois de 5 anos de uma relação de idas e vindas, conexão intensa e falta de comunicação e sinceridade um com o outro.
 
@@ -65,6 +51,17 @@ Reconhecimento que estava sofrendo com um relacionamento tóxico:
 quando estava viajando para o Ceará. Vc escolheu querer me dar um fora antes de eu viajar, mesmo assim fui fiel com vc e não fiquei com ninguém e quis demonstrar isso como voto de confiança, algo que todo relacionamento deve ter.
 
 Talvez nosso destino mudou ai, pois voce mesma disse que esse epsodio foi o que mudou o que voce sente por mim. Mesmo que eu tenha tido boas intençoes e fui sincero desde o inicio que eu queria algo serio com voce.
+
+
+## 20/10/2024
+coração partido, mandei audio normal de manha e terminou comigo gritando comigo porque tava com problemas pessoais e com uma rotina agitada. Eu entendo que estava sobrecarregada, mas eu so queria te ajudar!!! So queria poder ser importante na sua vida, a qualquer custo, sempre te apoiar e incentivar. 
+
+eu apoiei, respeitei e deixei ela no seu tempo...
+
+ela volta com saudades e falando muitas coisas com segundas intencoes
+
+sempre tivemos uma conexao de troca de carinhos e frases de conforto, acreditamos em lei da atração e lei do retorno
+
 
 ## 25/10/2024
 foi quando já voltei do ceara, fiz uma carta de amor mais bonita que fiz na vida e entreguei com flores e chocolate pedindo desculpas pela briga da viagem. Pelo menos com isso, ela me desbloqueou e voltamos a se falar, eu realmente fiz a carta com muito amor e carinho que demorou 3 dias para ficar pronta.
@@ -83,18 +80,23 @@ Em seu aniversário, fui companheiro e fiel escudeiro perto de seus amigos. Esti
 
 ela reforça que não quer nada sério. Mas não abre a mão de falar comigo todos os dias como nada tivesse mudado. Sempre fomos carinhosos um com o outro, mas aí já percebi que eu estava solteiro e na reserva dela. Não gosto de ser tratado apenas como opção, enquanto ela era minha total prioridade, isso nao é depedencia emocional, é amor.
 
+## 20/12/2024
+voce tinha me prometido... prometeu que a gente passaria o natal e a virada do ano juntos... que a primeira praia do ano seria juntos... sem falar da fantasia de casal no carnaval combinando... seja sincera, o que te fez mudar assim? tao derrepente? o que aconteceu? parou de gostar de mim? conheceu outra pessoa? so bastava ser sincera comigo
+
+sempre tivemos uma conexao de troca de carinhos e frases de conforto, acreditamos em lei da atração, lei do retorno e na espiritualidade em todo esse tempo. Mesmo eu com esperanças que a gente voltaria a ficar, ela ja me tratava apenas como ""amigo""
+
 ## 26/12/2024
 
 eu estava triste. Fui excluído de passar o natal com minha própria família. Para completar, ela fica bolada comigo com uma postagem minha no Instagram desabafando pro close friends que eu tinha me entregado de corpo e alma por alguém e que não estava sendo correspondido e falando que minha vida tinha mudado como se tivesse tudo de cabeça para baixo pelo coração partido, estava a muito tempo sofrendo e demorou para cair a ficha. Brigamos pois ela achou que eu tivesse fazendo indireta colocando como vilã e ainda me bloqueou de bobeira para vencer a "discussão".
 
 ## Até 17/01/2025
-Ela sabia que eu estava sofrendo e continuamos a se falar todo dia, trocando carinho e boas vibrações e os dois afirmando que estavam com um saudade do outro e ainda pensando em marcar uma praia ou um fds comendo hambúrguer.
+Ela sabia que eu estava sofrendo e continuamos a se falar todo dia, trocando carinho e boas vibrações e os dois afirmando que estavam com um saudade do outro e ainda pensando em marcar uma praia ou um final de semana para comer hambúrguer juntos.
 
 ## Em 19/01/2025
 
 foi o ápice. Convidei ela para sair comigo no dia seguinte e ela recusa. Mas Ela posta que está num bar com outro cara na noite anterior e ainda tive a coragem de ver isso com meus próprios olhos... Campo grande sendo pequeno....
 
-## Em 20/01/2025 foi onde tudo terminou...
+# Em 20/01/2025 foi onde tudo terminou... é o fim.....
 
 ela ainda posta de novo que estava na praia com outro cara. Depois disso, ficou claro que os planos dela na verdade eram com outra pessoa. Ela não queria nada sério COMIGO e sim com outros e ainda me manipulou me dando chances com segundas intenções. "Não é que eu não quero sair com você, mas é que já tenho outros planos" 
 
