@@ -178,14 +178,14 @@ Estou livre, estou feliz, foi um ciclo que eu mais fiquei feliz pois tive amor s
 Eu te amo, nunca, com meus 26 anos de idade senti uma conexão como a nossa. Mas.... em contos de fadas, quem disse que o principe bonzinho fica a princesa? Sereia, feiticeira, Prof. Yoga, Veterinaria, Amor da minha vida. Fica bem, meu bem... desde o carnaval de 2018 foi incrivel para mim te conhecer por esses 7 anos de amor com ciclos e aprendizados.
 
 
-## 02/03 - 05/03 (2025)
+## 02/03 - 05/03 (2025) - Um eterno apaixonado nunca deixa de amar
 
 Nossa virada de ano foi separados... eu senti sua falta... muita, uma saudade que doia o meu peito, demorei 1 mes sofrendo e chorando quase todos os dias mas fui forte e inteligente para reconhecer algumas coisas. 21/02 foi o dia que eu realmente te superei pq depois de tanto tempo de sofrimento eu passei a me valorizar de verdade ao ponto de perceber que nao merecia isso.
 
 Agora, no final de fevereiro voce volta... dizendo coisas... prometendo... falando que se arrepende por ter me magoado.. Que estava em busca de entender a conexão que nos temos. Mas ao mesmo tempo, Palavras proferidas por dois apaixonados são Promessas profundas como oceanos Mas nunca são mantidas. É doloroso receber uma carta tao linda e uma pulseira de algo que eu realmente acredito e dizer que queria me ver todos os dias do carnaval mas nao queria ser emocionada, ao ponto de dizer que me amava no baile do denis e mesmo assim voce escolheu sair com suas amigas e ainda diz nao ter feito chantagem emocional pela escolha que fiz no marcha nerd. Dizer SEMPRE que foi um erro se reaproximar machuca muito... eu nao mereço sofrer desse jeito, se meu amor te assusta por que continuar? Porque ficar confusa por um cara que te jura amor de corpo e alma para sempre? Nao é isso que voce quer? EU nao consigo entender bem isso... mas eu sempre vou te esperar com meu coração carregando toneladas de paixão por voce.
 
 
-## 06/03/25
+## 06/03/25 - Sera que ela realmente acredita no akaito?
 
 Por que tudo isso ta acontecendo comigo? Eu já tinha superado, ela veio e voltou me pedindo desculpas, disse que estava disposta a vencer tudo o que tinha acontecido. A gente saiu 2x depois e ela chegou a falar que me amava
 
@@ -209,7 +209,7 @@ Ela saiu do bloco sozinha e senti um aperto muito forte no peito, só tem ela na
 
 Meu aniversário está chegando e acho que estou com crises emocionais, mas eu realmente estou disposto na minha última tentativa, pois o que sinto é verdadeiro e acredito na lenda do Akaito
 
-## 07/03/2025
+## 07/03/2025 - A ultima esperança
 
 Eu fiquei triste, depois do baile do denis achei que voce queria minha presença. Perguntei se queria sair e voce disse que iria dormir na segunda feira mas depois posta foto de gatinha... Achei que nao fosse sair e ainda ficou de avisar... Perguntei se queria ir comigo no bloco das Sereias na terça feira... voce disse que iria sair para o "bloco das meninas", eu respeitei seu espaço, nao temos nada mesmo, entenderia que quer passar seu carnaval sozinha mas quando posta foto no Instagram tem mais macho do que menina perto de voce... "O golpe esta ai, cai quem quer". Engraçado, minha intuição tambem nao falha, senti meu coração GRITANDO nesse dia e ele tinha razão.
 
@@ -221,7 +221,7 @@ Eu preciso focar em mim, priorizar meu bem estar, minha vida profissional, mas e
 
 Isso para mim ta muito claro, sabe por que? voce tem medo de fazer sexo comigo pq sabe que vai se apaixonar, sabe que nosso beijo e nossa pegada na cama é diferente mas voce tem medo de enfretar isso, tem medo de assumir algo. A escolha é simples, faz o que voce quiser, o golpe esta ai e eu sempre estou caindo....
 
-## 15/03/2025 
+## 15/03/2025 -- Mercurio Retrogado, esse foi para valer!
 Fim de ciclo, busquei terminar isso pessoalmente, deixei claro que nao podemos mais seguir com o que a gente tem. Falei sobre o que sinto, falei dos meus sentimentos que tive em 2024, o quanto foram intensos e nem isso foi suficiente para te balançar. Eu amei voce de corpo e alma, bem do fundo do meu coração, mas pelo menos voce pediu desculpas e reconheceu que me deixou mal, triste, desperançoso.... muita coisa aconteceu comigo nesse momento e eu esperei algo em troca, reciprocidade, empatia, companheirismo, principalmente, amor.....
 
 Mas tudo isso foi levado pelo vento, assim como a gente ter ido no centro espirita juntos, nos tambem mereceços encerrar esse ciclos, vai doer muito em mim te ver so como amiga, mas prefiro te ver assim do que longe e afastada de mim. Voce realmente nao tem noção dos sentimentos que sinto por voce, do quanto eu moveria montanhas se fosse preciso, mas acho que no fundo voce queria isso. Eu nao mereço uma pessoa confusa, nao mereço uma pessoa que demora para responder quando eu pergunto o que sente, voce mesma disse que eu mereço ter alguem que me ame do jeito que eu amo as pessoas. A questão que sempre foi voce, voce mudou isso em mim e eu estava disposto a ser seu principe e fazer acontecer, vencer barreiras, vencer desafios, tudo juntos... Mas nao depende de mim. 
