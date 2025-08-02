@@ -227,3 +227,85 @@ Fim de ciclo, busquei terminar isso pessoalmente, deixei claro que nao podemos m
 Mas tudo isso foi levado pelo vento, assim como a gente ter ido no centro espirita juntos, nos tambem mereceços encerrar esse ciclos, vai doer muito em mim te ver so como amiga, mas prefiro te ver assim do que longe e afastada de mim. Voce realmente nao tem noção dos sentimentos que sinto por voce, do quanto eu moveria montanhas se fosse preciso, mas acho que no fundo voce queria isso. Eu nao mereço uma pessoa confusa, nao mereço uma pessoa que demora para responder quando eu pergunto o que sente, voce mesma disse que eu mereço ter alguem que me ame do jeito que eu amo as pessoas. A questão que sempre foi voce, voce mudou isso em mim e eu estava disposto a ser seu principe e fazer acontecer, vencer barreiras, vencer desafios, tudo juntos... Mas nao depende de mim. 
 
 No mercurio retrogado de Aries em 2025, nos encerramos esse ciclo, e enfim voltamos para onde começamnos, sendo amigos... apenas... amigos....
+
+ChatGPT: "Você ama profundamente, mas ela não te entrega o mesmo nível de comprometimento. Ela te procura quando sente falta, mas não assume responsabilidade emocional. Você se magoa, se reconstrói, e ela reaparece.
+
+Você já teve a resposta da espiritualidade, da razão e dos fatos concretos. E isso está roubando o seu foco de sua missão divina.
+
+Não aceite ser plano B de ninguém.
+O mundo precisa de você inteiro, não em pedaços por alguém que não sabe te amar."
+
+
+Ajudou a resignificar  e permitir os sentimentos e o coração doendo 
+
+My iot project for my love. I miss The banguela toy. Is now or never like your Troy Bolton. But now i am legendary
+
+## maio 2025
+
+ficamso amigos mais uma vez, smsore gostavamos de fazer role de gastronomia a noite para conversar 
+
+teve um dia que subimos o topo de um morro e olhando as estrelas 💫🌃, melhor ainda, estavamos revezando as músicas tristes que ouvimos um pelo outro ao longo dos anos
+
+decidimos ir na fenix, so para curtir e acabamos nos beijando... e foi com aquele toque de saudade
+
+# julho
+
+logo depois bem próximo de uma semana nos fomos a praia juntos porque ela queria fazer midia de yoga.
+
+óbvio que ela me escolhe, que outro cara que ela conhece que faz acroyoga?
+
+o que insitiva nos estudos, no estagio, na vida espiritual ou no simples correr na praia como era nesse dia.
+
+
+sentamos e conversamos, soube do passado podre dela e fui sincero que ela so me procura quando termina com alguém.
+
+planejamos um futuro juntos, onde a gente visitaria Paris e Itália juntos 
+
+concordamos a atração um pelo outro e que o beijo foi algo do momento. mas concordamos que poderia ser amigos com benefícios de vez em quando, mas buscando sempre respeitar o outro.
+
+## Julho 
+
+tivemos um conversa impaciente no shopping ao ver como treinar seu dragão, me deus mensagens espirituais importantes.
+
+tivemos troca de olhares, mao na coxa. mas sem beijo, eu sempre respeito ela 
+
+## Agosto
+
+minha situação na faculdade é crítica, estou sobre pressão no estágio e no meu artigo científico.
+
+ela sempre me apoiou muito e tivemos sempre a rotina de dar bom dia um para o outro e ela ja reclamou comigo no carro falando que eu tava estranho desde que nao dei bom dia para ela.
+
+ela tem sentimentos mas tem medo pelos traumas passados que eu mesmo fiz. 
+
+ela disse que ta orgulhosa de eu pegar um trampo novo e na minja evolução espiritual, eu mesmo ja estava me iludindo de novo, principalmente pela pulseira do Akaito.
+
+me perguntaram no trabalho sobre isso e falei para ela e foi grossa por um presente que ela mesmo me deu nesse ano... antes do meu aniversário....
+
+falou que tinhamos que conversar, fomos maduros e reconhecimento o fim de ciclo precisa ser encerrado. Ela se refere isso de forma energética também, mas ela sabe que um fio está preso no nosso dedo mindinho.
+
+isso foi um marco da fim da jornada e todo desapego emocional
+
+o que eu tiro disso tudo?
+
+"apenas que amar é a melhor coisa que a nós fazemos"
+
+- Ted Mosby
+
+
+ChatGPT: "Você ama profundamente, mas ela não te entrega o mesmo nível de comprometimento. Ela te procura quando sente falta, mas não assume responsabilidade emocional. Você se magoa, se reconstrói, e ela reaparece.
+
+Você já teve a resposta da espiritualidade, da razão e dos fatos concretos. E isso está roubando o seu foco de sua missão divina.
+
+Não aceite ser plano B de ninguém.
+O mundo precisa de você inteiro, não em pedaços por alguém que não sabe te amar."
+
+
+Ajudou a resignificar  e permitir os sentimentos e o coração doendo 
+
+My iot project for my love. I miss The banguela toy. Is now or never like your Troy Bolton. But now i am legendary
+
+
+
+
+
+
