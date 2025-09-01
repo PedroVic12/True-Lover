@@ -55,7 +55,7 @@ class PedidoNamoro:
                 use_container_width=True,
             )
         widgets.criar_markdown(
-            "<h3 style='text-align: center; color: blue;'>O dia que nos conhecemos.</h4>",
+            "<h3 style='text-align: center; color: #5613a9;'>O dia que nos conhecemos.</h4>",
             unsafe_allow_html=True,
         )
 
@@ -68,7 +68,7 @@ class PedidoNamoro:
             rotate = False,
         )
         widgets.criar_markdown(
-            "<h3 style='text-align: center; color: blue;'>Nosso primeiro porre.</h4>",
+            "<h3 style='text-align: center; color: #5613a9;'>Nosso primeiro porre.</h4>",
             unsafe_allow_html=True,
         )
 
@@ -89,7 +89,7 @@ class PedidoNamoro:
 
         self.card_image(
             "fotos/foto_2018_4.jpeg",
-            "<h3 style='text-align: center; color: blue;'>Sempre fomos muito lindos juntos. Eu lembro do beijo na bochecha desse dia ate hoje</h4>",
+            self.text_h3("Sempre fomos muito lindos juntos. Eu lembro do beijo na bochecha desse dia ate hoje"),
 
             img_rotate= False
 
@@ -98,14 +98,14 @@ class PedidoNamoro:
         self.card_image(
 
             "fotos/foto_2018_5.jpeg",
-            "Essa foto tem historia...",
+            self.text_h3("Essa foto tem historia..."),
             img_rotate= False
         )
 
 
         self.card_image(
             "fotos/foto_2018_6.jpeg",
-            "Obrigado por sempre cuidar de mim <3",
+            self.text_h3("Obrigado por sempre cuidar de mim <3"),
             img_rotate= False
         )
 
@@ -113,31 +113,31 @@ class PedidoNamoro:
 
         self.card_image(
             "fotos/foto_2019_0.jpg",
-            "Inicio da nossa fase BusinessWoman e Homem de negocios",
+            self.text_h3("Inicio da nossa fase BusinessWoman e Homem de negocios"),
             img_rotate= False
         )
 
         self.card_image(
             "fotos/foto_2019_1.jpg",
-            "Sempre foi um sonho ter voce no meu lado",
+            self.text_h3("Sempre foi um privilégio ter voce no meu lado"),
             img_rotate= False
         )
 
         self.card_image(
             "fotos/foto_2019_2.JPG",
-            "Começo do carnaval indo fantasiados hahaha",
+            self.text_h3("Começo de carnaval indo fantasiados hahaha"),
             img_rotate= True
         )
 
         self.card_image(
             "fotos/foto_2019_4.JPG",
-            "Fim do carnaval com voce",
+            self.text_h3("Fim do carnaval com voce"),
             img_rotate= True
         )
 
         self.card_image(
             "fotos/foto_2019_6.jpg",
-            "Eu realmente acho que nessa foto nosso corpo forma um coração <3",
+            self.text_h3("Eu amo essa foto porque ela forma um coração <3"),
             img_rotate= False
         )
 
@@ -145,25 +145,25 @@ class PedidoNamoro:
 
         self.card_image(
             "fotos/foto_2020_0.jpeg",
-            "Tivemos nossa primeira foto de ano novo juntos",
+            self.text_h3("Tivemos nossa primeira foto de ano novo juntos"),
             img_rotate= False
         )
 
         self.card_image(
             "fotos/foto_2020_1.jpeg",
-            "Voce sempre foi minha sereia e companheira de praia",
+            self.text_h3("Eu e minha Sereia na praia..."),
             img_rotate= False
         )
 
         self.card_image(
             "fotos/foto_2020_2.jpeg",
-            "Sempre sonhei ter uma pessoa que goste de entrar no mar comigo",
+            self.text_h3("O mar é nosso ponto de equilibrio"),
             img_rotate= False
         )
 
         self.card_image(
             "fotos/foto_2020_3.jpg",
-            "Sobrevivemos uma pandemia juntos...",
+            self.text_h3("Sobrevivemos uma pandemia juntos..."),
             img_rotate= False
         )
 
@@ -172,19 +172,19 @@ class PedidoNamoro:
 
         self.card_image(
             "fotos/foto_2021_0.jpg",
-            "Tivemos mais uma virada de ano... de muitas emoçoes",
+            self.text_h3("Tivemos mais uma virada de ano... de muitas emoçoes"),
             img_rotate= False
         )
 
         self.card_image(
             "fotos/foto_2021_1.JPG",
-            "O tempo nos embelezou muito! Fala serio!!!",
+            self.text_h3("O tempo nos embelezou muito! Fala serio!!!"),
             img_rotate= True
         )
 
         self.card_image(
             "fotos/foto_2021_3.jpg",
-            "Obrigado por sempre cuidar de mim <3 mesmo nas minhas dificuldades",
+            self.text_h3("Obrigado por sempre cuidar de mim <3 mesmo nas minhas dificuldades"),
             img_rotate= False
         )
 
@@ -192,20 +192,20 @@ class PedidoNamoro:
 
         self.card_image(
             "fotos/foto_2024_2.jpg",
-            "Ate hoje sou encantado com seu sorriso ilumindo o ambiente",
+            self.text_h3("Ate hoje sou encantado com seu sorriso ilumindo o ambiente"),
             img_rotate= False
         )
 
         self.card_image(
             "fotos/colagem.jpg",
-            "Obrigado por tudo nesse ano de 2024!",
+            self.text_h3("Obrigado por tudo nesse ano de 2024!"),
                         img_rotate= False
 
         )
 
         self.card_image(
             "fotos/foto_2024.jpg",
-            "Ainda quero arrancar muito sorriso seu <3 ",
+            self.text_h3("Ainda quero arrancar muito sorriso seu <3 "),
             img_rotate= False
         )
 
@@ -214,7 +214,7 @@ class PedidoNamoro:
             "O que eu sinto": "https://www.youtube.com/watch?v=Il-R_o_rldA",
             "O que eu penso": "https://www.youtube.com/watch?v=7xbPK_y1Dv8",
 
-            "O que eu faço": "https://youtu.be/MIdFmYK6VDk?si=tOipJhJu4J1vHyXB",
+            "O que eu faço": "https://youtu.be/1RcP7Dsterg?si=-sg39LacnxvZjX6f",
         }
 
         escolha = st.radio("Escolha um vídeo 🎬", list(videos.keys()))
@@ -293,15 +293,21 @@ class PedidoNamoro:
             musicas = {
                 "Natalina": [
                     ASSETS_PATH + "music/Justin Bieber - Mistletoe (Official Music Video).mp3",
-                    ASSETS_PATH + "music/natal_extra_1.mp3",
+                    ASSETS_PATH + "music/Justin Bieber - Anyone (Official Live Performance).mp3",
                 ],
                 "Romântica": [
                     ASSETS_PATH + "music/two_is_better.mp3",
-                    ASSETS_PATH + "music/romantica_extra_1.mp3",
+                    ASSETS_PATH + "music/Enrique-Iglesias-feat-Miranda-Lambert-Space-In-My-Heart-(CeeNaija.com).mp3",
+                    ASSETS_PATH + "music/Glee_Cast_-_Without_You.mp3",
+                    ASSETS_PATH + "music/HighSchoolMusical3CanIHaveThisDanceHd.mp3",
+                    ASSETS_PATH + "music/Ed_Sheeran_-_-_Thinking_Out_Loud.mp3"
                 ],
                 "Sofrência": [
                     ASSETS_PATH + "music/Sorriso Bonito.mp3",
-                    ASSETS_PATH + "music/sofrencia_extra_1.mp3",
+                    ASSETS_PATH + "music/01 - Salva Meu Coração.mp3",
+                    ASSETS_PATH + "music/01TheClimb.mp3",
+                    ASSETS_PATH + "music/Manu_Gavassi_-_Planos_Impossiveis_(mp3.pm).mp3"
+
                 ]
             }
 
@@ -364,16 +370,19 @@ class PedidoNamoro:
             )
             widgets.criar_header("Feliz Natal e um otimo ano de 2025, Danielle Serrano! <3", )
             st.divider()
+            
+            # videos HSM
+            st.video(
+                data= ASSETS_PATH + "true_lover.mp4",
+                format="video/mp4"
+            )
+
+            # Escolhad de musicas
             widgets.criar_subheader("🎶 Play na nossa musiquinha? Escolha entre as opções 🎶")
-
-
-            # Carrousel de imagens
             self.tocar_musica_random()
 
 
-            ## Carrousel videos HSM
-            #self.video_youtube()
-
+            ## Carrousel 
             self.carrossel_videos()
 
             st.divider()
