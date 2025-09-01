@@ -6,7 +6,7 @@ from src.stremlit_components import StreamlitComponents as widgets
 # Caminho global para os assets
 ASSETS_PATH = "./assets/"
 
-print(widgets)
+#print(widgets)
 
 
 class PedidoNamoro:
@@ -294,17 +294,28 @@ class PedidoNamoro:
             
 
     def page(self):
+
+        #playlsit songs
+        songs_romanticas = [ ]
+
+
         with widgets.criar_container():
+
+            # Carrousel de videos
             st.image(ASSETS_PATH + "fotos/gif_animado.gif")
             st.divider()
+
+
+            # header
             widgets.criar_header(
-                "Para a mais especial, minha feiticeira, que tem o sorriso que ilumina meu coração, "
+                "Para a minha feiticeira e minha Sereia, que tem um sorriso lindo que ilumina meu coração"
             )
-            widgets.criar_header("Feliz Natal, Danielle Serrano! :)", )
+            widgets.criar_header("Feliz Natal, Danielle Serrano! <3", )
             st.divider()
             widgets.criar_subheader("🎶 Play na nossa musiquinha? Escolha entre as opções 🎶")
-            widgets.criar_markdown("# Não tem HSM ta muito na cara já xD")
-            widgets.criar_subheader("1) Opção Natalina")
+
+            # Listar opções
+            widgets.criar_subheader("1) Opção Natalina :) ")
             widgets.criar_audio(
                 ASSETS_PATH
                 + "music/Justin Bieber - Mistletoe (Official Music Video).mp3",
@@ -324,7 +335,7 @@ class PedidoNamoro:
                 format="audio/mpeg",
             )
 
-            widgets.criar_header("Encontre a sua surpresa de natal:")
+            widgets.criar_header("Encontre a sua surpresa de natal: rsrs ")
 
             col1, col2, col3, col4, col5, col6 = widgets.criar_colunas(6)
             if col1.button("❤️", use_container_width=True, key=1):
@@ -339,7 +350,7 @@ class PedidoNamoro:
                 self.dialog_message = '"Amar você é mergulhar em um oceano de emoções onde a profundidade nunca termina."'
             if col6.button("❤️", use_container_width=True, key=6):
                 self.dialog_message = (
-                    '"No abraço do teu amor, encontrei o lar que sempre procurei."'
+                    '"No abraço do seu amor, encontrei o lar que sempre procurei."'
                 )
 
             # Exibir o diálogo se houver uma mensagem
