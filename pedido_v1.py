@@ -373,7 +373,8 @@ class PedidoNamoro:
             
             # videos HSM
             st.video(
-                data= ASSETS_PATH + "true_lover.mp4",
+                data = "https://drive.google.com/file/d/1rOrIGCOxH8OaGH0x_I3b6QCzp774Zbwo/view?usp=sharing",
+                #data= ASSETS_PATH + "true_lover.mp4",
                 format="video/mp4"
             )
 
