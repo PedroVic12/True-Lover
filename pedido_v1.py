@@ -28,6 +28,16 @@ class PedidoNamoro:
 
         st.divider()
 
+    def video_youtube(self):
+        from streamlit_player import st_player
+
+        # Embed a youtube video
+        st_player("https://www.youtube.com/watch?v=Il-R_o_rldA")
+        # O link do YouTube deve estar dentro do src="link_do_video"
+        #html_code = """<iframe width="560" height="315" src="https://www.youtube.com/embed/7xbPK_y1Dv8?si=bDUpO0iiwIhaK0L2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>        """
+
+        #st.html(html_code)
+
     def carrousel_imagens(self):
 
         st.markdown("# 2018")
@@ -327,6 +337,9 @@ class PedidoNamoro:
                 + "music/two_is_better.mp3",
                 format="audio/mpeg",
             )
+
+            self.video_youtube()
+
 
             widgets.criar_subheader("3) Opção Sofrencia Brasileira")
             widgets.criar_audio(
