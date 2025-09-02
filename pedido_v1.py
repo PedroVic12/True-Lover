@@ -374,13 +374,14 @@ class PedidoNamoro:
             # videos HSM
             video_url_hf = "https://huggingface.co/spaces/pedrov12/dashboard_moderno/resolve/main/true_lover.mp4"
             st.video(video_url_hf)
+            st.divider()
             
-            st.video(
+            #st.video(
 
-                data = "https://drive.google.com/file/d/1rOrIGCOxH8OaGH0x_I3b6QCzp774Zbwo/view?usp=sharing",
-                #data= ASSETS_PATH + "true_lover.mp4",
-                format="video/mp4"
-            )
+             #   data = "https://drive.google.com/file/d/1rOrIGCOxH8OaGH0x_I3b6QCzp774Zbwo/view?usp=sharing",
+            #    #data= ASSETS_PATH + "true_lover.mp4",
+            #    format="video/mp4"
+            #)
 
             # Escolhad de musicas
             widgets.criar_subheader("🎶 Play na nossa musiquinha? Escolha entre as opções 🎶")
