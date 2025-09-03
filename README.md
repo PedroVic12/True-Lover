@@ -254,7 +254,11 @@ teve um dia que subimos o topo de um morro e olhando as estrelas 💫🌃, melho
 
 decidimos ir na fenix, so para curtir e acabamos nos beijando... e foi com aquele toque de saudade
 
-# julho
+# Junho 2025
+
+Viramos amigos de terreiro, amigos espirituais, o que for. Mas a gente só se encontrava para falar sobre espiritualidade e perspectiva de vida. A gente costumava ir nos shopping juntos pelo menos...A questão é qe no dia dos namorados, danielle teve a coragem de me mandar um audio (provavelmente um ficante dela) perguntando onde que ela iria passar o dia dos namorados (12/06) ou se ia passar o dia com o ex dela. O que ela queria dizer com isso? porque ela me mandou esse audio? o que eu tenho a ver com isso? Isso so me machucava ainda mais.
+
+# julho 2025
 
 logo depois bem próximo de uma semana nos fomos a praia juntos porque ela queria fazer midia de yoga.
 
@@ -262,10 +266,11 @@ logo depois bem próximo de uma semana nos fomos a praia juntos porque ela queri
 
 o que insitiva nos estudos, no estagio, na vida espiritual ou no simples correr na praia como era nesse dia.
 
+sentamos e conversamos, soube do passado PODER dela (ytallo, mateus, aquele menino do dia da praia (que é um idiota), entre outros, mas o que se superou foi o que vc FOI CONHECER A FAMILIA de um cara que fazia a casa de motel para os amigos, que nojo, serio! ) e fui sincero com ela sobre vir me procurar só quando termina com alguém. 
 
-sentamos e conversamos, soube do passado podre dela e fui sincero que ela so me procura quando termina com alguém.
+Tivemos uma conversa produtiva na praia, conversamos sobre nosso relacionamento, passado e futuro. Mas não do presente, não da forma que ela me olhava e do jeito que ela me abraçava e do quase que nos beijamos dentro do carro, o que salvou foi a mãe dela na porta que viu a gente.
 
-planejamos um futuro juntos, onde a gente visitaria Paris e Itália juntos 
+chegamso a planejar um futuro juntos, onde a gente visitaria Paris e Itália juntos.
 
 concordamos a atração um pelo outro e que o beijo foi algo do momento. mas concordamos que poderia ser amigos com benefícios de vez em quando, mas buscando sempre respeitar o outro.
 
@@ -273,7 +278,7 @@ tivemos um conversa impaciente no shopping ao ver como treinar seu dragão, me d
 
 tivemos troca de olhares, mao na coxa. mas sem beijo, eu sempre respeito ela 
 
-## Agosto
+## Agosto 2025
 
 minha situação na faculdade é crítica, estou sobre pressão no estágio e no meu artigo científico.
 
