@@ -1,9 +1,10 @@
+---
 # True-Lover, A History from Pedro Victor Veras
 ---
 
-Versão narrada em audio:
+[Ouça a versão narrada em áudio](https://raw.githubusercontent.com/PedroVic12/True-Lover/main/assets/true_lover_eleven_labs.mp3)
 
-<audio src="https://github.com/PedroVic12/True-Lover/blob/main/assets/true_lover_eleven_labs.mp3" controls> ouvir versão resumida </audio> 
+---
 
 ## 18/02/2018 - Primero encontro
 
