@@ -3,32 +3,38 @@
 
 ## 18/02/2018 - Primero encontro
 
-Eu lembro ate hoje quando te vi pela primeira vez, sempre achei marrenta haha mas voce sempre foi o tipo que eu gostava. Aproveitamos o carnaval juntos e depois ficamos, lembroa te hoje voce me chamando pelo dedo para te beijar. Beijamos e ja senti nossa conexão florescendo e renascendo de novo. Depois ficamos varias vezes no mesmo carnaval e nos divertimos muito. Começamos a dar role juntos como amigo (com beneficios rs)
+Eu lembro ate hoje quando te vi pela primeira vez no carnaval de 2018, sempre achei vc meio marrenta haha mas voce sempre foi o tipo que eu gostava. Aproveitamos o carnaval juntos alguns dias e depois ficamos, lembro ate hoje de voce me chamando pelo dedo para ir te beijar...rs. Nos Beijamos e ja senti nossa conexão florescendo e renascendo de novo. Depois ficamos varias vezes no mesmo carnaval e nos divertimos muito. Começamos a dar role juntos como amigo (com beneficios rs)
 
 ## Ano de 2019
-Nos saiamos de forma amiga e naquela epoca cada vez que a gente se encontrava ficava claro para mim o quanto gostava de voce. Foi ai que começou meu sentimento por voce, aos poucos nossa amizade ficava cada vez mais florecida, cada vez mais o amor se instalava no meu coração mas eu tentava seguir com minha pose de pre adolescente com 20 anos na epoca, apenas um jovem inconseguente e caotico que voce se apaixonou.... onde esse garoto.... morreu... E conforme os anos, renasceu um Homem
+Nos saiamos de forma amiga e naquela epoca cada vez que a gente se encontrava ficava claro, para mim, o quanto gostava de voce. Foi ai que começou meu sentimento por voce, aos poucos nossa amizade ficava cada vez mais florecida, cada vez mais o amor se instalava no meu coração, mas eu tentava seguir com minha pose de pre adolescente com 20 anos na epoca, apenas um jovem inconseguente e caotico que voce se apaixonou.... onde esse garoto.... morreu... E conforme os anos, renasceu um Homem
 
 ## 07/2020 - Pedido de namoro
 
-Voce veio de forma sorrateira conquistando meu coração... aos poucos.. te considerava como uma melhor amiga onde sempre contava com voce. Mas quando te chamei para minha casa como amiga e voce querendo me ensinar a dançar e fazer yoga eu realmente nao achava que tinha maldade. Mas depois que dançamos e voce ficou em cima de mim na minha cama, vi seu olho brilhando e aquele beijo que voce me deu eu fui ate a lua e voltei. Depois desse dia ja aceitei que tava me apaixonando por voce e mesmo nao estando pronto e com diversos problemas de saude mental eu sabia que ter voce no meu lado seria a minha melhor escolha.
+Voce veio de forma sorrateira conquistando meu coração... aos poucos.. te considerava como uma melhor amiga onde sempre contava com voce. Mas quando te chamei para minha casa como amiga e voce querendo me ensinar a dançar e fazer yoga eu realmente nao achava que tinha maldade. Mas depois que dançamos e voce ficou em cima de mim na minha cama, vi seu olho brilhando e com aquele beijo que voce me deu, eu fui ate a lua e voltei. Depois desse dia ja aceitei que tava me apaixonando por voce e mesmo nao estando pronto e com diversos problemas de saude mental eu sabia que ter voce no meu lado seria a minha melhor escolha.
 
 
-## 03/2021- Proposta de namoro aberto com apenas beijos fora e sexo unico para nao atrapalhar a conexão
+#### 03/2021- Proposta de namoro aberto com apenas beijos fora e sexo unico para nao atrapalhar a conexão
 
 ## 06/2021 - rompimentos e coração partido danielle
 
-reconheço que deixei ela muito triste ao reforçar que nao estava pronto para um relacionamento naquele momento.
+Fim de ciclos, não dava mais para sustentar um relacionamento aberto com muitas restrições e carga emocional. Epoca de pandemia, muitas amigas ela não gosta e falta confiança de ambas as partes.
+
+reconheço que deixei ela muito triste ao reforçar que nao estava pronto para um relacionamento naquele momento... sei que já magooei muito ela... 
 
 
 ## 01/03/2023 
 
-Ela Volta depois de um relaciamento com trauma para ela e por nao ser o que ela esperava. Bebia e ficava vibe chico moedas com os seus amigos e fica mais pilhada em vida de blogueirnha fitness e chamativa nas redes socias
+Ela Volta depois de um outro relacionamento. Dessa vez fiquei bloqueado por um bom tempo e depois descobri que esse garoto me odeia. Ela tambem ainda carregas alguns traums,Muitos causados por mim  e por nao ser o que ela esperava. Bebia e ficava vibe chico moedas com os seus amigos e fica mais pilhada em vida de blogueirnha fitness e chamativa nas redes socias
 
 
-## 12/03/2024 - Foi no meu aniversario e se mostrou confianete ao desejar carinho e sucesso na minha vida e se aprovetando se eu der mole( sinto muito, me perdoe, eu te amo, sou grato) Tambem te amo (NESSE MOMENTO SENTI A CONEXÃO LIGAR DE NOVO)
+## 12/03/2024 - Foi no meu aniversario e se mostrou confianete ao desejar carinho e sucesso na minha vida
+
+Ela me deu um selinho, ela rebolou a bunda dela na minha cara junto com uma amiga minha, ela tambem viu outra menina que ela nao gostava que eu ficava na epoca, mas com musica e piscina voce foi se soltando e se aproveitou de uma casquinha minha, caso eu se eu te desse mole como quando eu disso( sinto muito, me perdoe, eu te amo, sou grato) Tambem te amo (NESSE MOMENTO SENTI A CONEXÃO LIGAR DE NOVO)
 
 
-#### 20/03/2024 - Se confunde e PEGA O 2 PESSOAS CONHECIDADAS MINHAS, SENDO UM """AMIGO""" DE ESCOLA(QUE EU SEI) QUE EU DISSE PARA NAO FAZER QUE EU IA FICAR CHATEADO NO MEU ANIVERSARIO, SERIO QUE VOCE PENSOU NISSO?
+#### 20/03/2024 - Se confunde e PEGA O 2 PESSOAS CONHECIDADAS MINHAS!
+
+SENDO UM """AMIGO""" MEU DE ESCOLA(QUE EU SEI). EU DISSE PARA NAO FAZER QUE EU IA FICAR CHATEADO NO MEU ANIVERSARIO, SERIO QUE VOCE PENSOU NISSO?
 
 ## 10/08/2024
 
@@ -262,8 +268,6 @@ sentamos e conversamos, soube do passado podre dela e fui sincero que ela so me 
 planejamos um futuro juntos, onde a gente visitaria Paris e Itália juntos 
 
 concordamos a atração um pelo outro e que o beijo foi algo do momento. mas concordamos que poderia ser amigos com benefícios de vez em quando, mas buscando sempre respeitar o outro.
-
-## Julho 
 
 tivemos um conversa impaciente no shopping ao ver como treinar seu dragão, me deus mensagens espirituais importantes.
 
