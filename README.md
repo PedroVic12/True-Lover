@@ -1,6 +1,10 @@
 # True-Lover, A History from Pedro Victor Veras
 ---
 
+Versão narrada em audio:
+
+<audio src="https://github.com/PedroVic12/True-Lover/blob/main/assets/true_lover_eleven_labs.mp3" controls></audio> 
+
 ## 18/02/2018 - Primero encontro
 
 Eu lembro ate hoje quando te vi pela primeira vez no carnaval de 2018, sempre achei vc meio marrenta haha mas voce sempre foi o tipo que eu gostava. Aproveitamos o carnaval juntos alguns dias e depois ficamos, lembro ate hoje de voce me chamando pelo dedo para ir te beijar...rs. Nos Beijamos e ja senti nossa conexão florescendo e renascendo de novo. Depois ficamos varias vezes no mesmo carnaval e nos divertimos muito. Começamos a dar role juntos como amigo (com beneficios rs)
