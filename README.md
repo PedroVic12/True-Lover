@@ -27,6 +27,10 @@ Fim de ciclos, não dava mais para sustentar um relacionamento aberto com muitas
 reconheço que deixei ela muito triste ao reforçar que nao estava pronto para um relacionamento naquele momento... sei que já magooei muito ela... 
 
 
+## 2022
+
+A gente sempre esbarrava e transava... mas quando nos afastamos é porque eu tava bloqueado e ela sabia que eu tava namorando a distancia a menina do CE, a mesma que eu terminei no mesmo ano em outubro. 
+
 ## 01/03/2023 
 
 Ela Volta depois de um outro relacionamento. Dessa vez fiquei bloqueado por um bom tempo e depois descobri que esse garoto me odeia. Ela tambem ainda carregas alguns traums,Muitos causados por mim  e por nao ser o que ela esperava. Bebia e ficava vibe chico moedas com os seus amigos e fica mais pilhada em vida de blogueirnha fitness e chamativa nas redes socias
