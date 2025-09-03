@@ -3,7 +3,7 @@
 
 Versão narrada em audio:
 
-<audio src="https://github.com/PedroVic12/True-Lover/blob/main/assets/true_lover_eleven_labs.mp3" controls></audio> 
+<audio src="https://github.com/PedroVic12/True-Lover/blob/main/assets/true_lover_eleven_labs.mp3" controls> ouvir versão resumida </audio> 
 
 ## 18/02/2018 - Primero encontro
 
