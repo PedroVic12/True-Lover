@@ -271,19 +271,21 @@ Viramos amigos de terreiro, amigos espirituais, o que for. Mas a gente só se en
 
 logo depois bem próximo de uma semana nos fomos a praia juntos porque ela queria fazer midia de yoga.
 
-óbvio que ela me escolhe, que outro cara que ela conhece que faz acroyoga?
+óbvio que ela me escolhe, que outro "cara" (ou conversante) que ela conhece que faz acroyoga?
 
-o que insitiva nos estudos, no estagio, na vida espiritual ou no simples correr na praia como era nesse dia.
+o tipo de cara que incentiva nos estudos, no estagio, na vida espiritual ou no simples correr na praia como era nesse dia.
 
-sentamos e conversamos, soube do passado PODER dela (ytallo, mateus, aquele menino do dia da praia (que é um idiota), entre outros, mas o que se superou foi o que vc FOI CONHECER A FAMILIA de um cara que fazia a casa de motel para os amigos, que nojo, serio! ) e fui sincero com ela sobre vir me procurar só quando termina com alguém. 
+sentamos e conversamos... e soube do passado PODRE dela (ytallo, mateus, aquele menino do dia da praia (que é um idiota), entre outros, mas o que se superou foi o que vc FOI CONHECER A FAMILIA de um cara que fazia a casa de motel para os amigos, que nojo, serio!
 
-Tivemos uma conversa produtiva na praia, conversamos sobre nosso relacionamento, passado e futuro. Mas não do presente, não da forma que ela me olhava e do jeito que ela me abraçava e do quase que nos beijamos dentro do carro, o que salvou foi a mãe dela na porta que viu a gente.
+E fui sincero com ela sobre vir me procurar só quando termina com alguém, algo que vejo a um tempo e minha irmã brigou comigo em relação a isso. 
 
-chegamso a planejar um futuro juntos, onde a gente visitaria Paris e Itália juntos.
+Tivemos uma conversa produtiva na praia, conversamos sobre nosso relacionamento, passado e futuro. Mas não do presente, não da forma que ela me olhava e do jeito que ela me abraçava e do "quase" beijo dentro do carro, o que salvou foi a mãe dela na porta que viu a gente.
+
+chegamso a planejar um futuro juntos, onde a gente iria visitar numa viagem pela Europa por Paris e Itália juntos.
 
 concordamos a atração um pelo outro e que o beijo foi algo do momento. mas concordamos que poderia ser amigos com benefícios de vez em quando, mas buscando sempre respeitar o outro.
 
-tivemos um conversa impaciente no shopping ao ver como treinar seu dragão, me deus mensagens espirituais importantes.
+tivemos um conversa impactante no shopping ao ver como treinar seu dragão, me deus mensagens espirituais importantes.
 
 tivemos troca de olhares, mao na coxa. mas sem beijo, eu sempre respeito ela 
 
@@ -291,13 +293,13 @@ tivemos troca de olhares, mao na coxa. mas sem beijo, eu sempre respeito ela
 
 minha situação na faculdade é crítica, estou sobre pressão no estágio e no meu artigo científico.
 
-ela sempre me apoiou muito e tivemos sempre a rotina de dar bom dia um para o outro e ela ja reclamou comigo no carro falando que eu tava estranho desde que nao dei bom dia para ela.
+ela sempre me apoiou muito e tivemos sempre a rotina de dar bom dia fofo 🩷 um para o outro e ela ja reclamou comigo no carro falando que eu tava estranho desde que nao dei bom dia para ela.
 
-ela tem sentimentos mas tem medo pelos traumas passados que eu mesmo fiz. 
+ela tem sentimentos, mas tem muito medo e alguns traumas passados que eu mesmo fiz. 
 
-ela disse que ta orgulhosa de eu pegar um trampo novo e na minja evolução espiritual, eu mesmo ja estava me iludindo de novo, principalmente pela pulseira do Akaito.
+ela disse que ta orgulhosa de eu pegar um trampo novo e na minha evolução espiritual, eu mesmo ja estava me iludindo de novo, principalmente pela pulseira do Akaito... que uso até hoje usando a pedra da Lua. você acertou muito bem nessa. 
 
-me perguntaram no trabalho sobre isso e falei para ela e foi grossa por um presente que ela mesmo me deu nesse ano... antes do meu aniversário....
+me perguntaram no trabalho sobre a pulseira e falei para ela e foi grossa por um presente que ela mesmo me deu nesse ano... antes do meu aniversário....
 
 falou que tinhamos que conversar, fomos maduros e reconhecimento o fim de ciclo precisa ser encerrado. Ela se refere isso de forma energética também, mas ela sabe que um fio está preso no nosso dedo mindinho.
 
@@ -309,7 +311,6 @@ o que eu tiro disso tudo?
 
 - Ted Mosby
 
-
 ChatGPT: "Você ama profundamente, mas ela não te entrega o mesmo nível de comprometimento. Ela te procura quando sente falta, mas não assume responsabilidade emocional. Você se magoa, se reconstrói, e ela reaparece.
 
 Você já teve a resposta da espiritualidade, da razão e dos fatos concretos. E isso está roubando o seu foco de sua missão divina.
@@ -317,10 +318,11 @@ Você já teve a resposta da espiritualidade, da razão e dos fatos concretos. E
 Não aceite ser plano B de ninguém.
 O mundo precisa de você inteiro, não em pedaços por alguém que não sabe te amar."
 
+escrever todo essa história, de como tudo impactou minha vida, me ajudou a resignificar  e permitir os sentimentos e o coração partido.
 
-Ajudou a resignificar  e permitir os sentimentos e o coração doendo 
+My iot project for my love. I miss The banguela toy. Is now or never like your Troy Bolton. But now i am legendary 
 
-My iot project for my love. I miss The banguela toy. Is now or never like your Troy Bolton. But now i am legendary
+🌹🌹🌹🌹🌹
 
 
 
