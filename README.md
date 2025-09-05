@@ -324,8 +324,21 @@ My iot project for my love. I miss The banguela toy. Is now or never like your T
 
 🌹🌹🌹🌹🌹
 
+## 01/08/25 agosto 
+
+voce me pediu oara se afastar de gez agora. disse quê sua vida precisava seguir, mas me deu unfollow um no outro? eu também nao vou ser obrigado a responder. ficar vendo o que o outro posta? o que vc tem que esconder de mim? de novo isso, igual com a Beatriz.
 
 
+## 04/09/25
 
+Mandou me ligar para saber se estava bem, contou sobre a mudança do barracão no domingo. 
+
+Falou de um jantar de negócios e que agora faz lista dos dias de final de semana que não pode sair para comer. 
+
+Confessou o ato que fez uma jogada para se afastar de propósito e eu realmente não sei como isso significa. Ela me trata como amigo mas se aproveita dos meus sentimentos porque sabe que eu sofro por amor por ela.
+
+Também confessou que a vida precisa seguir mesmo que o primeiro bom dia ao acordar era pro ex (eu). Isso reforça que ela só sai com cara trouxa e me deixa na reserva por ser um cara legal e com terapia em dia.
+
+O que eu penso sobre isso é o seguinte. Ou você ingressa na minha vida e me permite morrer por amor por você ou então não podemos mais ser amigos e agora só ser ex mesmo. 
 
 
