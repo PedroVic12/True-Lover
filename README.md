@@ -339,6 +339,21 @@ Confessou o ato que fez uma jogada para se afastar de propósito e eu realmente 
 
 Também confessou que a vida precisa seguir mesmo que o primeiro bom dia ao acordar era pro ex (eu). Isso reforça que ela só sai com cara trouxa e me deixa na reserva por ser um cara legal e com terapia em dia.
 
-O que eu penso sobre isso é o seguinte. Ou você ingressa na minha vida e me permite morrer por amor por você ou então não podemos mais ser amigos e agora só ser ex mesmo. 
+
+## Sequencia do Desapego emocional 2025
+--- 
+
+- WHen im gone - Simple PLan
+- Salva meu coração - Zeze di Carmargo e Luciano
+- Place in me - Luke Hemmings
+- Coração esta em pedações - Zeze di Carmargo e Luciano
+- Pessoa certa na hora errada - Giulia be
+- Kill my time - 5 seconds of summer
+- Foi a primeira vez - Zeze di Carmargo e Luciano
+- Era para sempre - Fresno
+- I can Wait forever - Simple plan
+- Name - Justin Bieber
+
+O que eu penso sobre isso é o seguinte. Ou você ingressa na minha vida e me permite morrer por amor por você ou então não podemos mais ser amigos e agora só vai ser ex mesmo. 
 
 
